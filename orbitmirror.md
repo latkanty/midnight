@@ -1,901 +1,821 @@
 # AI Builders Digest 今日热点快报
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 ---
 
 ## 一、国内时政
 
-### 对门邻居聊装修聊到结婚！网友沸腾：门当户对！
+### 4家A股公司登陆港交所 “A+H”上市公司已达193家
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/81025.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/54362.shtml</code>
 
-### 女子被跳楼者砸伤：没有得到任何赔偿 欲起诉
+### 阳光诺和：公司拥有BiMTtide多肽偶联药物（PDC）开发平台
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1063140.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/9147.shtml</code>
 
-### 广东一养殖场鳄鱼出逃？当地应急管理局：70余条鳄鱼出逃，正在处置
+### 首单央企商业不动产REITs——华夏保利商业REIT即将发售：定价回归理性，大湾区核心资产受关注
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/97045.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/148796.shtml</code>
 
-### 广州一彩民独中1.44亿元大奖，中奖号码已守3年
+### 五方光电：公司将加大市场开拓力度，深化合作伙伴关系，推动公司主营业务稳健发展
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6750660.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/239308.shtml</code>
 
-### 编剧史航再回应被指性骚扰 称对被指性骚扰已起诉
+### 半年报“比拼”即将打响！A股已有23只超10倍预增股！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/710296.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0995401.shtml</code>
 
-### 中国是梅西福地，坐实了！
+### 渝三峡A：2026年7月28日召开2026年第二次临时股东会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/90164.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/645176.shtml</code>
 
-### 陕西发生一起故意杀人案 致7死2伤
+### 菜百股份：公司始终注重经营管理能力的持续提升
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7375.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4012060.shtml</code>
 
-### 多地高校探索纪检监察学科建设 如何培养人才？
+### 券商薪酬改革重塑长效激励约束机制
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/080345.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4610.shtml</code>
 
-### 零下24度停暖，鹤岗只是中国老龄化浪潮的一个开始
+### 小米预热REDMI Note 17 Pro搭载1.5K旗舰直屏
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/64596.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/200089.shtml</code>
 
-### 门开了电梯却没到，87岁老人坠入电梯井不幸身亡……
+### 发行遇冷！消费主题基金，批量延长募集期
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/844983.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/69854.shtml</code>
 
-### 在雪山中，如何监测“世界屋脊上的大猫”？
+### 圣火科技再冲港股：上市前分红“清空”利润
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9315.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/019164.shtml</code>
 
-### 吉祥大戏院宣布取消11月19日至27日全部演出
+### 波音737 MAX 7型客机有望于本月底获美联邦航空局适航认证
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7560.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4723.shtml</code>
 
-### 那个省重点的高考女孩怎么样了
+### 金价大跌逾10%之际波兰央行逆势扫货82吨
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3053.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/10408.shtml</code>
 
-### 宝马司机撞人后拖行1公里！生命与法律都不容践踏
+### 原油：油价下跌 交易员预计美伊冲突保持可控
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/87346.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/679253.shtml</code>
 
-### 央媒：众口难“调”，如何“休”好？
+### 大华继显：阿里巴巴-W目标价升至190港元 重申“买入”评级
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/234266.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6430251.shtml</code>
 
-### 异地民警郑州办案猥亵嫌疑人之妻被拘
+### 锐科激光：公司正在持续加大海外业务布局
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/69323.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/080771.shtml</code>
 
-### 46岁妈妈立遗嘱将财产只留给儿子，真的在防谁吗？
+### 视频丨Anthropic CEO：中国大模型只会刷榜，真实生意场上没赢过我们
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/822526.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/60995.shtml</code>
 
-### 与女主播发生关系被敲诈320万元，涉事寺庙住持已被暂停多个职务
+### 普通人如何用算力改变生活？海光信息副总裁应志伟这样回答
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/87578.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0374.shtml</code>
 
-### 哲学家李泽厚“冷冻头颅”遗嘱已执行！家人证实，头颅在“人体冷冻鼻祖”阿尔科保存
+### 市值破千亿背后，紫光股份上半年净利预增超八成
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1434621.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/747237.shtml</code>
 
-### 年在何处｜回老家过年，一个被催婚“95后”的怕与爱
+### 锐科激光：公司目前正在按照年度市值管理方案开展各项工作
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2062020.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0360.shtml</code>
 
-### 彩票中8662万捐5300万 ？网友吵翻了…
+### 07月10日苯乙烯7810.00元/吨 5天上涨7.58%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2859.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/64746.shtml</code>
 
-### 全网找人！浙江美女老板娘，意外走红
+### 正式调频交易！盛弘日本储能项目投运，迈入商业化验证新阶段
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/86457.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/7087796.shtml</code>
 
-### 为1100万元，母校给肄业生上了最后一课
+### 特朗普称美伊停火协议已经结束 但双方将继续进行谈判
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/346255.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8563002.shtml</code>
 
-### 工人日报刊文解析员工互评利与弊：当心让埋头干活老实人吃亏
+### United Rentals将于7月23日召开第二季度财报电话会议
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/037418.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/53182.shtml</code>
 
-### 环时锐评:希望“蓝马甲事件”进一步促进文明执法
+### 洛阳钼业遭小摩减持约109.23万股 每股作价约15.27港元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9873.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/7309208.shtml</code>
 
-### 游客开车碾压草原辱骂牧民，媒体：越野不该变成撒野
+### 董秘转行首席战略官，股价应声涨停！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7931.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/02826.shtml</code>
 
-### 悬赏4元捉拿通缉犯 运营方是家私企，“众筹”追逃？
+### 07月10日豆粕2976.00元/吨 20天上涨3.05%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/340057.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/169667.shtml</code>
 
-### 城投公司瞄上了墓地生意
+### 联讯仪器（688808）：中标北京国联万众半导体科技有限公司采购项目，中标金额为1954.85万元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4676.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/7780550.shtml</code>
 
-### 黑心秤竟能远程遥控！“鬼秤”背后谁在捣鬼？
+### 三星计划将龙仁首座晶圆工厂投产时间提前至2029年
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7713.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/98216.shtml</code>
 
-### 纾解农村大龄男青年婚恋难题，国际婚姻管用吗？
+### 九州通：公司无逾期担保
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2505616.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0340.shtml</code>
 
-### 一觉醒来，我们见证了大反转的一幕
+### 中国银河证券联合上交所走进沪市上市公司汇嘉时代
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5576742.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4295300.shtml</code>
 
-### 新规后快递员业务量狂增十几倍，最担心被投诉
+### 卡骆驰将于7月30日召开第二季度财报电话会议
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4512907.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/3154148.shtml</code>
 
-### 8岁女童被13岁邻居杀害遗体在田地里发现，官方回应嫌犯已羁押正走司法流程
+### 美众院下周表决永久实施夏令时间法案
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/61523.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/1185490.shtml</code>
 
-### 今年五一，我打算“混进”老年旅行团
+### 卫健委召开发布会解读2026版基药目录，本次新增4款Ⅰ类创新药
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1927.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/9259474.shtml</code>
 
-### 房贷利好政策落地 多地首套房商贷利率跌破4%
+### 特朗普宣布美伊“停火结束”后 美军称暂无行动变化
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7112890.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/37348.shtml</code>
 
-### 《钢铁侠》成为首部入选美国“国宝”的漫威电影
+### 【市场聚焦】棕榈油：马来局6月报告
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/289383.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8817.shtml</code>
 
-### 男子机舱喊飞机要出事 警方：精神状态异常
+### 超颖电子：泰国新建高阶产能下半年集中释放，AI服务器产品预计今年年底迎来集中放量
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4010949.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/016914.shtml</code>
 
-### 员工没转发朋友圈被扣工资开除 律师:要勇敢说“不”
+### 预亏7.4亿，牛散断臂离场！百万尊界也救不了江淮汽车
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/75519.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/44967.shtml</code>
 
-### 妈妈私拆档案引关注：这“档”事，弄错就是一辈子
+### 周末影响市场重要资讯回顾：商务部、海关总署对氦气实施临时禁止出口管理，伊朗暂时关闭霍尔木兹海峡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/017165.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8380983.shtml</code>
 
-### 粉发女孩遭网暴后离世，别轻易放过那些刽子手
+### 07月10日动力煤824.75元/吨 90天上涨8.70%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0394167.sHtML</code>
-
-### 一名检察官称他诬陷了一名副局长
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/8707.sHtML</code>
-
-### 刷屏！刘强东，大消息！
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/0764937.sHtML</code>
-
-### 新京报：“网红盐”也是盐，别被“营销故事”带偏了
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/196402.sHtML</code>
-
-### 高开低走 马布里的第一段执教生涯交足了“学费”
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/07922.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4723780.shtml</code>
 
 ## 二、民生社会
 
-### 台媒：林志颖谈车祸哽咽内疚，“险害到儿子”
+### 长电科技：临港工厂今年3月正式投产
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9668248.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6649326.shtml</code>
 
-### 2比1逆转德国队 日本队为亚洲球队再胜一场
+### 受台风巴威的影响 多家航司通知：可免费变更或退票一次
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/87281.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/1919702.shtml</code>
 
-### 新疆喀纳斯景区发生一处雪崩，目前辖区路段实施交通管制
+### 海特高新：公司将综合各方股东诉求、产业发展等多方面因素，审慎研判华芯科技相关经营情况和未来发展规划
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1653.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/95415.shtml</code>
 
-### 烧烤降温，淄博没凉
+### Polymarket申请保证金交易许可，拓展杠杆预测市场
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/782440.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/14107.shtml</code>
 
-### 李易峰多次嫖娼被行拘！通报仅64字，透露哪些信息？
+### 战略入股迈矽科微电子，三旺通信加速构建“空天地一体化”工业互联底座
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/105569.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/15414.shtml</code>
 
-### 全班43人只来了7位爸“家长会”成了“妈开会”？
+### 军信股份：公司及其控股子公司无逾期债务对应的担保余额
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0863.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/075281.shtml</code>
 
-### 如此早餐真的让人放心吗？福州真味食品工厂被曝脏乱差
+### 天齐锂业：公司生产所需化学级锂精矿采购定价机制为每月定一次价
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/14888.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/19961.shtml</code>
 
-### 北京日报：问题官员该查，任性街拍得管
+### 利好来袭！A股千亿巨头，刚刚公告！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/590876.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/637706.shtml</code>
 
-### 丑得上头！一夜之间大家都变成了黏土人
+### 中科曙光与豫信电科签约，推动十万卡AI超集群在豫落地应用
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/089488.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/320185.shtml</code>
 
-### UFC今年将举办中国赛，张伟丽一人拿下三大奖项
+### 菱电电控：公司目前正在积极布局低空飞行器领域
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/037013.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/341121.shtml</code>
 
-### 奇迹！2岁幼童被河马吞下后又吐出，竟然活下来了
+### 北京全市已转移21021户、57181人，180家旅游景区关闭，4311家乡村民宿暂停营业
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1842669.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/02071.shtml</code>
 
-### 娃肺都白了家长还不愿住院，是谁让孩子“病不起”？
+### 保时捷上半年全球交付量同比下降16%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/988246.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0987972.shtml</code>
 
-### 天津一医院厕所出现弃婴？警方通报
+### 中一科技：公司现阶段处于满产状态
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/95193.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8426.shtml</code>
 
-### 热搜第一！西安巨响，什么情况？
+### 三六零预计上半年扭亏为盈 净利润上限约2.6亿元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/39830.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/599851.shtml</code>
 
-### 三亚快艇把身体不适游客直接丢海里？官方辟谣
+### 芯片巨头，突传大动作！提前1—2年投产！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/32179.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8929166.shtml</code>
 
-### 投资元宇宙：是风口还是虎口？
+### 大众计划砍掉半数车型、压缩产能以削减成本
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/90408.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0047674.shtml</code>
 
-### 760元推动一次网暴，网络水军作恶岂能逍遥法外
+### 埃隆·马斯克声称SpaceX将在未来十年内将“数千人”送上月球和火星
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/578917.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/78386.shtml</code>
 
-### 官方回应桦南体育馆坍塌事故调查进展：鉴定机构正在现场取样
+### Circle获美国货币监理署批准设立全国性信托银行
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/39140.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/95818.shtml</code>
 
-### 张颂文工作室声明：都是假的！
+### 【板块异动】丙烯酸赛道突发暴涨！渤海化学强势封板，高端新材料风口已至？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5686.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/603151.shtml</code>
 
-### 丑陋！中超外援故意撞倒主裁判马宁，将面临禁赛严惩
+### 斯洛克：若AI盈利不及预期，股市与宏观经济将双双承压
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/41163.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/79124.shtml</code>
 
-### 小米开启年底裁员：补偿N+2，多部门均有涉及
+### 10倍光纤大牛股长飞光纤，遭百万股抛售，一把套现4亿元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6766594.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/336923.shtml</code>
 
-### 爆满，涨价！很多人在做！有人却进了医院！紧急提醒
+### 马斯克：Anthropic目前是人工智能领域的领跑者
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8876.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/018964.shtml</code>
 
-### 警方回应“男子胁迫女生不让其下车”：双方系朋友关系，女生目前安全在家
+### 纽约联储行长表示特别关注人工智能需求对通胀的影响
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4393721.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/496515.shtml</code>
 
-### 管理人员怒斥员工 上市公司回应：已降其为一线环卫工
+### 三年营收复合增长率760％！羲禾科技冲刺科创板：硅光芯片风口背后
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/055891.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/57539.shtml</code>
 
-### “澳门新赌王”周焯华覆灭记
+### 母女反目！“人工骨第一股”爆发内讧
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2134.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/469130.shtml</code>
 
-### 男主播帮粉丝取快递被查是毒品，被判无期
+### 特变电工（600089）：中标雅砻江流域水电开发有限公司采购项目，中标金额为1649.00万元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3865.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6915255.shtml</code>
 
-### 8月18日北京怀柔-密云线、通密线等列车全部停运
+### 中泰证券：公司聚焦主责主业提质增效，持续加强价值传递
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7540621.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/1887582.shtml</code>
 
-### 广西贺州通报“交警持棍击倒电动车”：涉事人已停职
+### “牛市旗手”业绩爆发！9家券商中报预喜，3家冲进百亿净利阵营
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9004.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/163817.shtml</code>
 
-### 女童5年内住院43次，只因母亲故意不给食物反喂泻药
+### 鼎龙控股赴港IPO，朱双全、朱顺全两兄弟合计持股29%，年薪均超70万元|港E声
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6725361.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/0745.shtml</code>
 
-### 保安盯上小区醉酒女业主，在死角动手了……
+### MiniMax启动融资，股价较三月高点回落近八成
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2803469.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/50193.shtml</code>
 
-### 家长称11岁女孩找同学途中失联1天后遇害 警方通报：38岁男性嫌犯已被抓获
+### 六家银行今日派息 机构看好银行股配置性价比
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/73289.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/89864.shtml</code>
 
-### 百岁“老顽童”去世！你童年的快乐都是他给的
+### 泰祥股份：公司目前尚未结项的募投项目有“汽车传动系统核心零部件智能制造项目”及“汽车零部件智能制造技术改造项目”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/65335.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/3429.shtml</code>
 
-### 两连胜结束世预赛第四窗口期，中国男篮回来了！
+### 纯碱价格跌至近10年冰点，供应端仍在“硬扛”......
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8348203.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/992017.shtml</code>
 
-### 国美员工承诺函合法吗？员工如何维权？律师解读来了
+### 离职者联盟！东方甄选原CEO孙东旭拉上主播明明天权开公司了
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/49560.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/27343.shtml</code>
 
-### 高空掉下烟头烫伤小婴儿！全楼采集DNA，锁定嫌疑人
+### 百川股份：目前海基新能源正积极拓展销售渠道，积极对接海外客户，力争实现出口增长
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1647.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4112481.shtml</code>
 
-### 北控不敌福建，张劲松执教首秀未能止住连败
+### 参投企业上市带来5.22亿元“纸上利润”，视源股份三闯港交所，盈利含金量几何？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/846489.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/80286.shtml</code>
 
-### 我们该不该继续买数字藏品？
+### 国际大奖+1！泰林集菌培养器斩获“精工智造奖”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/36734.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/529976.shtml</code>
 
-### 医生手术台拳击患者头部？爱尔眼科回应
+### 优博讯：公司围绕端侧AI以及端边云协同和平台化服务等方面持续布局、推动终端产品和解决方案的AI化升级
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/642708.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/29620.shtml</code>
 
-### 七成受访青年感觉太多虚拟社交让人更孤独
+### 美联储发布半年度货币政策报告 再次承诺致力于实现价格稳定
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/343122.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/1274613.shtml</code>
 
-### 留在郑州工作的年轻人
+### 广西壮族自治区贵港市委原常委、市人民政府原副市长潘汉胜被开除党籍和公职
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6385.sHtML</code>
-
-### 媒体：女教师上网课时遭家暴，不该用“和解”收尾
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/531414.sHtML</code>
-
-### "二次元版高圆圆"：考研386分败了 拍躺平视频却…
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/82112.sHtML</code>
-
-### 小学生“推翻”标准答案 敢于质疑比依赖课本更重要
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/9120924.sHtML</code>
-
-### 北京正面临暑期进返京高峰！这些提醒@进返京的你
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/0765098.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/332879.shtml</code>
 
 ## 三、科技产业
 
-### 今冬供暖季北京市居民用电气热价格不作调整
+### 视频|五次IPO全部折戟！老乡鸡估值蒸发90亿元 束从轩父子上市梦第五次落空
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/62199.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/5796860.shtml</code>
 
-### “阳性一次，终身拒保”？
+### MSC Income Fund第二季度私人贷款组合新增承诺7440万美元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/12737.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/038406.shtml</code>
 
-### 夫妇后悔送养女儿寻女30年，为何引争议？
+### 香农芯创上半年净利最高预增2434.34%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/228970.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/382705.shtml</code>
 
-### 提前几分钟停止检票？中国铁路官方解答来了！
+### 润欣科技：公司持续关注AI技术进步对终端产品形态演进带来的机会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9316.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/4938.shtml</code>
 
-### 《中国好声音第二季》亚军张恒远去世 年仅37岁
+### 赛意信息：内外经营举措协同发力，促使利润水平实现增长
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4501.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/00171.shtml</code>
 
-### 张继科借贷属高利贷？律师：当时并未超法定上限
+### 星星科技：子公司因台风洪涝灾害临时停产
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/11756.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/093125.shtml</code>
 
-### 禁养烈犬伤人犬主担全责，标示更醒目司法红线 | 新京报快评
+### 景兴纸业被出具警示函，涉回购金额远低计划下限
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5647.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/5343954.shtml</code>
 
-### 北京发布雷电黄色预警，局地短时雨强较大
+### 华工科技：TGV玻璃通孔激光加工智能装备已完成整机定型
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1105.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/40297.shtml</code>
 
-### 我在北京送外卖
+### 长江存储IPO有进展，这些A股上市公司有望受益
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/70122.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/5784.shtml</code>
 
-### 这届文旅局，让人“一看一个不吱声”
+### 顺发恒能：2026年半年度业绩预告
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/464241.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8032439.shtml</code>
 
-### 中学招标插线板报3600元/个？当地回应
+### 美银证券：信达生物维持“买入”评级 目标价上调119.2港元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3474845.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/5919.shtml</code>
 
-### 福茂集团董事长赵安吉车祸身亡，多方哀悼
+### 韩国KOSPI指数收盘上涨2.5% 本周下跌7.6%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/659487.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6598502.shtml</code>
 
-### 安徽南陵一广场突发雷击伤人事件，致2死2伤
+### 建设机械：2026年7月28日将召开2026年第三次临时股东会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/435088.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/2042.shtml</code>
 
-### 西安一男子用不明液体泼洒路人，警方通报
+### 摩根大通和花旗银行家据悉将加入香港交易所上市委员会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6474.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/76760.shtml</code>
 
-### 媒体：掀铁板、打砸秦桧像是寻衅滋事 不是“尊岳”
+### 稻香控股获董事会主席钟伟平增持30万股 每股作价0.27港元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5362720.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/9701315.shtml</code>
 
-### 长白山遇黑车，男子称与傅园慧经历相似却维权失败
+### 超颖电子：7月9日召开业绩说明会，投资者参与
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/92356.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/65489.shtml</code>
 
-### 上海一公司男员工在巴黎强吻女同事，被开除！他辩称……
+### 三年连亏、违规担保缠身、再遭立案：ST银江深陷多重经营危局
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/91970.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6260681.shtml</code>
 
-### 网友吐槽政务大厅全天工作6小时 黑龙江五常市回应
+### 顺丰控股：公司长期致力于构建端到端一站式的综合物流解决方案能力
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8390394.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/329755.shtml</code>
 
-### 梅西等14人候选“世界足球先生”，他获奖还有悬念吗
+### 北方稀土大宗交易成交343.84万元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2354378.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/9965210.shtml</code>
 
-### 沙特门将奥韦斯身价仅70万欧 却挡住了世界第3阿根廷
+### 【板块异动】石油加工板块狂飙2%！渤海化学强势封板，氢能+丙烯酸双主线引爆行情
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9403.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8810923.shtml</code>
 
-### 媒体：尴尬的南阳音乐节 给“破圈”之城提了个醒
+### 国力电子：目前公司半导体业务稳步推进
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2416.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/5815.shtml</code>
 
-### 女杂技演员高空表演坠亡之后
+### 国泰海通保荐项目北京通美注册近四年后撤回，商业秘密争议再受关注
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/21679.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/526718.shtml</code>
 
-### 会否接棒丈夫？蔡磊妻子回应
+### 沃华医药索赔时效不足半年，受损投资者抓紧索赔
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/690053.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/2434.shtml</code>
 
-### 政策利率接连调降！房贷又能少还了？
+### 存储初创企业ScaleFlux筹备IPO 大批机器人亮相花旗总部
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5430.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/6037.shtml</code>
 
-### 等红灯时刷手机，上海一司机被罚200元扣3分 官方回应
+### 最高预增3436%，钨业3倍大牛股业绩爆发，超30家A股公司预喜
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7272954.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/996131.shtml</code>
 
-### 山西原平有“偷煤”现象？官方发布情况说明
+### 10%普遍关税临近到期日 美国贸易代表称不确定会有新措施完全替代
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9781.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/509721.shtml</code>
 
-### 江西上饶一河中惊现碎尸？警方回应：已赶赴现场勘查
+### 2026 年 A 股最大 IPO 来袭，长鑫科技登陆科创板引发市场多重博弈
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0327.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/8565.shtml</code>
 
-### “赛博判官”兴起，年轻人迷上在线“断案”
+### 美国挫败一起在白宫格斗赛期间发动恐袭的预谋
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5107.sHtML</code>
+来源：<code>map.baike.crdpl.cn/Article/03983.shtml</code>
 
-### 乘高铁抽电子烟被拘5天，专家呼吁纳入控烟条例
+### 绿地六大混改省级建工集团经营现状！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/38762.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/210892.shtml</code>
 
-### 知名平台宣布：停止运营！可退款
+### Byline Bancorp将于7月23日发布2026年第二季度财报
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6387035.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/861008.shtml</code>
 
-### “跨省抢救”的小宇泽离世5年 母亲仍未拿到车主赔偿
+### 风华高科：上半年归母净利润同比预增61.84%至79.82%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4520.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/017099.shtml</code>
 
-### 国安部披露：涉密单位人员晒办公室自拍被间谍策反
+### 蒙牛乳业获Schroders PLC增持1785万股 每股作价约17.08港元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0638.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/335660.shtml</code>
 
-### 中国男子刺死日本女友，细节披露
+### 艾罗能源：公司ORI系列大型储能系统已取得部分订单
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0583788.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3316.shtml</code>
 
-### 媒体：能否将调休选择权交给劳动者自己
+### Snap-on将于7月23日召开第二季度及上半年业绩电话会议
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/051365.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/83548.shtml</code>
 
-### 挨打是家常便饭！被困缅北两年，男子讲述恐怖经历
+### 又一存储厂业绩炸裂，归母净利增长超21倍！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9151928.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/69558.shtml</code>
 
-### 国安逆转武汉长江重回正轨，足协杯将给年轻人机会
+### 002157：台风过境，损失巨大
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5871863.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/391229.shtml</code>
 
-### 宝马车冲撞人群致5死13伤，无差别暴力离我们有多远
+### 市值2600亿缩水到117亿，中公教育能靠AI上岸吗？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/43076.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1793.shtml</code>
 
-### 挺进热门专业的学生，“卷”不到保研机会
+### 伯克希尔股价有所回升，2026年下半年仍落后于标普
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0122922.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/94920.shtml</code>
 
-### 全校唯一的老师，和4名学生的升旗仪式
+### 美国气候预测中心：75年来最强的厄尔尼诺要来了
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1048211.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/47432.shtml</code>
 
-### 苹果官网下架iPhone 13 Pro 降价促销iPhone 13
+### 长电科技：公司将坚定产品结构优化的核心方向
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/860129.sHtML</code>
-
-### 上海一基金经理网恋，被工厂女工骗走29万
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/32337.sHtML</code>
-
-### 四川启动三级保供电调控措施，全力保障民生用电
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/34825.sHtML</code>
-
-### 英雄 |“魔笛”优雅依然 一个人扛着克罗地亚前行
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/8336.sHtML</code>
-
-### 离谱！2名游客滑野雪造成雪崩、4人被埋，景区通报
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/97668.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3822779.shtml</code>
 
 ## 四、国际热点
 
-### 媒体：“招娣们”改名遇阻 1958年的规定该改改了
+### 中兴通讯早盘涨超7% “豆包手机”二代即将亮相大摩看好其迎来关键拐点
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/916635.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/4280.shtml</code>
 
-### 世界杯淘汰赛今日打响：阿根廷、荷兰能否会师？
+### 实控人被留置，新产业火速回购护盘，内外业务“冰火两重天”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/028291.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/042039.shtml</code>
 
-### 男子怒斥杭州某医院放1000个号等待7小时，医院回应
+### 晶盛机电：实现了8-12英寸半导体大硅片设备的国产替代
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1619496.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2889.shtml</code>
 
-### 共享充电宝成新刺客？
+### 人民币升值对大类资产价格影响几何
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2565.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/01356.shtml</code>
 
-### 跨省盗墓团伙盗掘上百件文物42人被抓，曾穿龙袍拍照
+### 迈赫尔通讯社：伊朗南部靠近阿曼湾的城市传出爆炸声
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/03150.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2745.shtml</code>
 
-### 陕西一女子将剧毒农药放入饮料给丈夫喝 被判刑5年
+### 特朗普拒签住房法案 但将允许其自动生效
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/057058.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/65544.shtml</code>
 
-### 江西新余一店铺地下一层发生火灾 附近店铺老板：周边大学已放寒假
+### 三星将发布三款全新Galaxy Z8折叠手机 售价最高涨20万韩元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6664886.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/22315.shtml</code>
 
-### 西方甄选改名为普通人优选：会注重于内容的制作
+### 通达股份：公司2026年度披露的预中标项目，均已取得相应中标通知书
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/058995.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/22044.shtml</code>
 
-### 北京首封高考普招录取通知书诞生！ @孙英博同学，请查收你的录取通知书
+### 中国广核：2026年8月3日召开2026年第二次临时股东会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/01561.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/248841.shtml</code>
 
-### 媒体：公摊面积“盲盒”还要到几时？
+### 云铝股份：公司铝产品广泛应用于交通等领域
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/42824.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/484074.shtml</code>
 
-### 成为“儿子”25年后，他被“父母”告上法庭
+### 贝壳给刚毕业的租房人，递来了一颗“后悔药”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8883799.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/198365.shtml</code>
 
-### 浙大毕业生当机场驱鸟员 媒体：莫轻言“人才浪费”
+### 特朗普机场、特朗普大桥来了
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0595.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1767.shtml</code>
 
-### 孙燕姿回应“AI孙燕姿”走红：有什么好争的
+### 特变电工：2026年预计黄金（金金属量）销量4吨
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4938748.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1447.shtml</code>
 
-### 春节档还是挣钱的好档期吗？
+### 银河证券A股策略：建议以业绩为锚 在波动中把握结构性机会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/04744.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5007397.shtml</code>
 
-### 高考生睡过头外卖小哥将其送到考场
+### DraftKings将于7月13日进军艾伯塔省 拓展加拿大体育博彩版图
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/836730.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1814.shtml</code>
 
-### 两张连座票喊价15万元，为什么黄牛总有票？
+### 知情人士：卡塔尔正分别与美伊磋商推动危机降温
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/627470.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/4804066.shtml</code>
 
-### 广西南宁积水倒灌进幼儿园 消防转移172名师生
+### 朱一明的造芯棋局：兆易创新半年净利预增超10倍，国产存储进入“超级周期”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4463552.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/533645.shtml</code>
 
-### 雨水今夜到访北京！将影响明天早晚高峰
+### 传腾讯正洽谈成为Manus最大股东
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3882474.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/6136650.shtml</code>
 
-### 媒体：爱奇艺限制投屏，“一份菜”要收几回钱？
+### 紫金矿业午前涨近3% 预计半年度归母净利润同比增加约169%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/98729.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/444672.shtml</code>
 
-### 他们的房子还没解“套”
+### “考公第一股”中公教育遭遇多事之秋，市值大幅缩水，能否靠AI上岸？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/97267.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/444427.shtml</code>
 
-### 每5个人里就有1个，干眼渐成“流行病”？
+### 宝济药业-B盘中涨超15% BJ044有望对现有尿源提取产品形成系统性替代
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5488622.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/409780.shtml</code>
 
-### 网传小米汽车21.9万起售，小米王化发文辟谣
+### 商业航天和卫星板块爆发涨停潮 中国火箭回收成功！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9573253.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/8610.shtml</code>
 
-### 什么时候歌手成了一个记歌词都要被表扬的职业了？
+### 存储疯狂扩产，半导体设备迎来"超级时代"！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/43055.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/22762.shtml</code>
 
-### 冷藏车违规乘人致8死，家属称遇难者均为女工
+### Mercor融资谈判凸显AI数据需求热潮
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/33755.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/737854.shtml</code>
 
-### 2200亿巨头突然宣布：降价30%！这类股立马“崩了”
+### 近一年涨幅近2倍，近三年涨幅近3倍，这只科技基金把热门主线装进一个篮子里
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/62110.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/57526.shtml</code>
 
-### 云南永善警方：发生一起致3死1伤刑案 嫌犯已被抓获
+### 石大胜华：公司目前生产经营一切正常
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8397663.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/52419.shtml</code>
 
-### 英媒：欧美电商直播为什么落后中国？
+### 比亚迪：7月2日比亚迪海洋网大型旗舰家轿海豹08正式上市
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8516877.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/76827.shtml</code>
 
-### 评论丨驱车看苗寨小姐姐发现全是阿姨，谁的问题？
+### 粤电力AWind ESG评级由BB上调至BBB，综合得分6.06
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6014.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3558.shtml</code>
 
-### 对话辛吉飞：“科技和狠活儿”背后
+### 新城控股6月合同销售额9.57亿元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7007.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/98990.shtml</code>
 
-### 86岁书法家范曾官宣再婚 新婚妻子徐萌照片公布
+### 瑞丰光电双基板路线并行，车载显示业务持续放量
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6053.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/6937.shtml</code>
 
-### 特斯拉刹车失灵事件核心成员被判道歉
+### 中信证券：先进反应堆已从预期主题走向现实，看好核电板块估值重估
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4667646.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/263907.shtml</code>
 
-### 北京今天最高气温5℃，降温明显，外出需注意保暖
+### 07月10日金属镝1955000.00元/吨 30天上涨7.12%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4279.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/0537712.shtml</code>
 
-### 福州美团外卖检出粪便和尿液？官方回应
+### 7月10日热门中概股多数上涨 日月光半导体涨8.27%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7672.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/608216.shtml</code>
 
-### 女孩穿动漫装乘地铁被拦下？上海地铁回应
+### 陕西金叶：公司及控股子公司不存在逾期担保
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2556360.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/093271.shtml</code>
 
-### 因核酸检测逼迫现身 一潜逃19年逃犯被海南警方抓获
+### 力鼎光电：2026年半年度预计实现归属于母公司所有者的净利润同比增长33.35%至52.74%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8997.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/47677.shtml</code>
 
-### 广西岑溪通报“报假警抱养小孩”事件：正在调查取证
+### 天海防务：公司无逾期担保金额或涉及诉讼的担保金额及因担保被判决败诉而应承担的损失金额等
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7312.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/12881.shtml</code>
 
-### 总感觉自己有病？你可能患上了“网络疑病症”
+### SK海力士赴美IPO，美国投资者可分食更大存储产业红利
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1683751.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/4672541.shtml</code>
 
-### 北京今夜最低气温零下8℃，明日最高气温5℃
+### 面临多重危机：大众汽车拟大幅削减车型与产能推进深度重组
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/833054.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2135.shtml</code>
 
-### “秀才”被封之外：短视频江湖里的中老年女性困局
+### 具身大脑，估值倒挂
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5170754.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/35005.shtml</code>
 
-### 国安不敌大连人遭遇两连败，斯坦利：输球并不意外
+### Bloom Energy因供应链不实陈述遭投资者集体诉讼调查
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0773.sHtML</code>
-
-### 疑购“运损”保时捷，浙江女子诉4S店要“退一赔三”
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/60537.sHtML</code>
-
-### 这种“踩屎感”鞋月销过万，正毁掉你的脚
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/43969.sHtML</code>
-
-### “阿里女员工案”二审将于9月2日不开庭宣判
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/5039480.sHtML</code>
-
-### 今日小雨再临京城，将一直持续至后半夜
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/0589959.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2747012.shtml</code>
 
 ## 五、文体娱乐
 
-### 抢完黄桃罐头抢柠檬？有批发商一天接60个采购电话
+### 北京通美IPO：过会四年后终止注册 拟转战港股上市
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3201.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3409349.shtml</code>
 
-### 财经作家吴晓波微博账号被禁言
+### 长鑫上市，一批券商要跟着吃肉
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1859.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/7426.shtml</code>
 
-### “AI+作业”下沉到中学课堂 教育如何适应AI时代
+### 朗科科技：公司目前主要围绕存储及算力产业链上下游进行布局
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/018754.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/46787.shtml</code>
 
-### 折叠屏手机诞生4年了，为何用的人这么少？
+### 怡达股份：目前未有G5级产品产业化且未产生收入
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4859.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5715.shtml</code>
 
-### 今年夏天蚊子少了，是被热死了吗？
+### 五大工作组来了--沃什“统一战线”，意在降息？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/01976.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5566768.shtml</code>
 
-### 90后夫妻拍摄贩卖淫秽视频获刑10年 抓捕现场曝光
+### 片山讲话刺激日元走高 交易员质疑势头如何维系
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/45733.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/656016.shtml</code>
 
-### “羊了个羊”养活代刷主播：投入15块，一天赚上千
+### 4家企业更新IPO进展，涉显示材料、光芯片等
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/20163.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3817607.shtml</code>
 
-### 41天高温预警终解除，“南旱北涝”会成趋势吗？
+### Lendable营收大增90%后推出5亿英镑ABS交易
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4114527.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/925736.shtml</code>
 
-### 深夜北京西站，等待回家的人
+### 价值1300亿美元的AI数据中心项目遭集体叫停，AI热潮前路何去何从
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0861.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/8149249.shtml</code>
 
-### 中山二院学生患癌事件，权威调查不能迟迟缺位
+### 富邦科技：在产品创新层面，公司已逐步构建起涵盖肥料助剂等在内的综合性农化助剂技术平台
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/92893.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/928108.shtml</code>
 
-### 吉林“浮桥案”再审将择期宣判，检方建议改判部分被告人无罪
+### 专家：乌克兰自产爱国者导弹难救近火 美方或借机放缓弹药援助
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/317478.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3966850.shtml</code>
 
-### “与女主播发生关系被敲诈320万”涉事男子被暂停寺庙住持，宗教局正核查资金来源
+### 海大集团：虾蟹料方面，南美白对虾作为全球流通品种，在国内外均是主流养殖品种
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9365.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/4131201.shtml</code>
 
-### 涉案金额约6位数！一网红被抓 证据自己都整理好了
+### 英力股份：现阶段越南工厂设备调试按计划实施中
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6551.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/294214.shtml</code>
 
-### “嗑不动”瓜子、“啃不动”坚果，洽洽食品如何自救
+### 法官虽表疑虑仍批准马斯克150万美元SEC和解协议
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4876193.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2425257.shtml</code>
 
-### “农妇卖150份粉蒸肉被判赔5万”续：准许撤诉，撤销原判
+### 实益达：公司旗下子公司目前为ASM PT提供半导体封装设备部件及整机产品
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5012695.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/990605.shtml</code>
 
-### 美媒：中国留学生减少，美国损失的不止学费
+### AI时代的“卖铲人”，终于轮到有色金属了？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4904.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/45812.shtml</code>
 
-### 汽车降价潮中有多少水分？“真香”背后藏风险
+### 创世纪“挖人窃密”被判赔3.82亿，账户被冻两个月才披露，涉事员工在原公司供职14年，离职前拷贝文件7万次
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9613.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3454.shtml</code>
 
-### 广东普宁警方通报女子骑车上桥把孩子推入池塘
+### 存储涨价周期考验终端厂商，华曦达前瞻绑定江波龙凸显供应链韧性
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4577.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/6611.shtml</code>
 
-### 滴滴后台系统崩溃投诉量激增，滴滴：网约车服务已恢复，骑行服务还在修复中
+### 平安电工：电子布涨价对公司业绩有正向影响，但整体销售收入占比不大
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9116268.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3804.shtml</code>
 
-### 男子去谈婚事竟被沉尸河里，准岳父有重大嫌疑
+### 北约峰会：欧洲国家唾面自干，特朗普前倨后恭 | 京酿馆
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9704.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/85216.shtml</code>
 
-### 多次对簿公堂后和解 李子柒距离回归还有多远？
+### 楚天高速：公司聘任陈军先生为公司总工程师
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6946553.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5389349.shtml</code>
 
-### 网传一外卖骑手被保安抱摔，北京警方通报
+### 卫星龙头中国卫星，扭亏！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8004.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/552711.shtml</code>
 
-### 媒体：律所拒聘川大毕业生，别拿假正义遮掩就业歧视
+### 07月10日苯胺10725.00元/吨 5天上涨13.79%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/39040.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2680.shtml</code>
 
-### 成本上涨给了涨价的理由，超市里3元以下的饮料正在消失
+### 拟收购半导体公司！688072，下周一复牌！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1979.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1820773.shtml</code>
 
-### 董明珠称孟羽童已不做秘书
+### 星源卓镁：控股股东拟大宗交易减持公司不超1.5%股份
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7249025.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5948.shtml</code>
 
-### “我希望到处跑！”他看不到这个世界，但他决定走出去→
+### 上能电气见证老牌火电厂绿色突围之路
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/50108.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/7223.shtml</code>
 
-### 9月1日起定向使用，北京医保个人账户资金怎么用？
+### 百事公司Q2营收超预期，北美消费疲软拖累盈利表现
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8514.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/293606.shtml</code>
 
-### 殡仪馆：袁仁国遗体暂不能探视
+### 博众精工大宗交易成交5378.00万元
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/416706.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3117.shtml</code>
 
-### 刷屏的刀郎新歌，是“复仇爽文”就能概括的吗？
+### 加拿大服饰零售商Aritzia第一财季净利润同比翻番 2026财年业绩预期全面上调
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/56013.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/7147381.shtml</code>
 
-### 60%受访毕业生称愿当网红！真能月入10万？
+### 天元智能：实际控制人、董事长兼总经理解除留置
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/820044.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/3559675.shtml</code>
 
-### 建设银行信用卡用户频遭第三方公司催收背后
+### 高能环境上半年净利润预计增长79.13%~118.94%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5470.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/99508.shtml</code>
 
-### 成都商报：建议给大白“实名”，也是为大白“正名”
+### 美国AI股太贵了？顶级基金经理：转战中国科技股、英股高股息与全球能源
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/487633.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/93579.shtml</code>
 
-### 全国首例，家暴男无视人身安全保护令被追究刑责
+### 【公告精选】600884，上半年净利润同比预增262%—334%
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/78311.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1288160.shtml</code>
 
-### 重庆一妈妈称婴儿遭月嫂虐待？官方通报
+### 雷军官宣\"澎程\"！ 小米打出了第二张牌
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6973.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/808079.shtml</code>
 
-### 暑期“博物馆热”持续升温折射了什么？
+### 我国运载火箭首次实现可控回收，航天航空股集体暴涨
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/26475.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/1989035.shtml</code>
 
-### 情侣入住41楼江景房，突发意想不到的一幕！
+### 华灿光电：公司Micro LED通讯应用芯片已率先交付海外客户验证，目前正处于关键性能提升与样品优化阶段
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8317513.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/465804.shtml</code>
 
-### 石家庄解除静态管理之后
+### 通宇通讯：2026年7月28日将召开2026年第三次临时股东会
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/729676.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/7773.shtml</code>
 
-### 情侣看完《消失的她》男生犹豫要不要分手 你怎么看？
+### BTQ与ICTK完成新一代量子安全芯片设计
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4491157.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/5977427.shtml</code>
 
-### 高校拟聘教师公示“处长之子”，有何用意？
+### 安联锐视：公司完成工商变更登记
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5016871.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/2393.shtml</code>
 
-### 博物馆突围的甘肃样本：丑萌“绿马”何以“出圈”？
+### 敲定半导体产业园选址 韩国光州推进军用机场迁建 目标2030年实现半导体投产
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/55696.sHtML</code>
-
-### 多名干部在政府办公楼旁酒店赌博！警方配合抓人
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/677118.sHtML</code>
-
-### 江苏一高速服务区接热水要收费 工作人员：水质不同
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/9858541.sHtML</code>
-
-### “先欢迎后扫码”被关门，落实防疫二十条由不得任性
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/10944.sHtML</code>
-
-### 刘强东明州案双方以和解终结
-
-来源：<code>www.mobile.tpdvm.cn/Article/details/77502.sHtML</code>
+来源：<code>map.baike.nvqfz.cn/Article/66798.shtml</code>
 
 ## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 *数据来源：新浪财经、公开媒体报道*
