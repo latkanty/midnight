@@ -1,901 +1,821 @@
 # AI Builders Digest 今日热点快报
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 ---
 
 ## 一、国内时政
 
-### 万玛才旦《雪豹》今日上映 看点揭秘解锁口碑佳作
+### 硬核！中国兵器最新航展宣传片发布
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/928362.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/2025.shtml</code>
 
-### 博纳影业25周年佳作不断“向新而生”
+### 俄别尔哥罗德州一地区防空系统启动 击落3枚导弹
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7643196.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/19846.shtml</code>
 
-### 第37届音乐华鼎奖主视觉公布 设置10项音乐奖项
+### 韩国民众日本大使馆前抗议 谴责日本解禁反击能力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/67306.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/553332.shtml</code>
 
-### 《穿越时空的少女》定档1月11日，细田守巅峰之作
+### 武契奇表态：不承认“科索沃”独立，塞尔维亚万岁！
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/213595.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/2530170.shtml</code>
 
-### 2021年票房破300亿 这个暑期还会有爆款吗？
+### 美国头号流行毒株来了 专家解读它威胁到底多大？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1362666.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/0869.shtml</code>
 
-### 杰瑞米·艾伦·怀特加盟星战新片 担任配音
+### 俄总统正式签署顿涅茨克等四地入俄条约和宪法
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3339.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/42892.shtml</code>
 
-### 48小时！《新游记》体验真实“人世间”
+### 德经济研究所所长：俄乌冲突让德去年损失1000亿欧元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/57228.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/2879.shtml</code>
 
-### 评《周振天创作艺术论》：观创作全貌 探艺术规律
+### 美台一些政客近来齐吹“台海战争”号 国台办驳斥
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/023429.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/328560.shtml</code>
 
-### 追忆NBA往事 《胜利时刻：湖人王朝崛起》新预告
+### 美媒：拜登多名前助手被美国司法部约谈
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/19636.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/2212.shtml</code>
 
-### 微博观影团《临时劫案》北京首映免费抢票
+### 外媒：德国国防部长提出辞呈 曾因为失言遭外界批评
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/00961.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/51893.shtml</code>
 
-### 《拳力以赴的我们》官宣阵容 林丹利路修等加盟
+### 印度发生大巴车坠崖事故 至少7名学生死亡超35人受伤
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/539155.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/342620.shtml</code>
 
-### 影迷评《临时劫案》：黑色幽默 荒诞刺激
+### 欧洲私人飞机坠海：战斗机飞行员追踪称驾驶舱内没人
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/20417.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/883977.shtml</code>
 
-### 影迷评《一雪前耻》：东北特色 笑点密集
+### 白宫证实泽连斯基访美 拜登将宣布重要新援助计划
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8729809.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/0404.shtml</code>
 
-### 利物浦足球俱乐部拍剧 比尔·香克利带领崛起
+### 台军被曝“海军用品”购自大陆
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/19335.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/193755.shtml</code>
 
-### 第二届澳涞坞颁奖季暨澳涞坞欢迎晚宴在澳门举行
+### 俄罗斯国防部：一架英国侦察机侵犯俄罗斯领空遭驱离
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7695592.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/18522.shtml</code>
 
-### 浅野一二〇漫画《零落》改编电影 斋藤工等出演
+### 俄总统普京出席“雅库特”号核动力破冰船下水仪式
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9856.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/0703.shtml</code>
 
-### 微博观影团《震耳欲聋》北京首映免费抢票
+### 热带风暴“伊恩”袭击美佛罗里达州 已致至少15人死
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/705759.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/715659.shtml</code>
 
-### 微博观影团《戏台》北京首映免费抢票
+### 中国代表：中方对扎波罗热核电站遇袭事件深表关切
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8816419.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/7435.shtml</code>
 
-### 电影《困兽》北京首映礼 港片破局之作引观众热议
+### 俄欧宇航员时隔20多年再度联合太空行走
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/253139.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/1787735.shtml</code>
 
-### 新浪观影团《这个杀手不太冷静》广州免费抢票
+### 俄媒：欧盟考虑对白俄罗斯实施制裁 德国表示反对
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3447874.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/58202.shtml</code>
 
-### 柠萌影业赴港上市 旗下储备多部IP作品将要拍摄
+### 美宣布将向乌提供“吸血鬼”反无人机系统 价格便宜
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/784882.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/1717.shtml</code>
 
-### 马嘉祺童年客串《少年诸葛亮》剧照曝光 稚嫩可爱
+### 特朗普称奥巴马带走3300万页机密文件 包括核武资料
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/886656.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/6317734.shtml</code>
 
-### 《致所有我曾爱过的男孩》女主新剧曝光
+### 中国援土耳其抗震救灾物资快速通关 启运伊斯坦布尔
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3038588.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/84331.shtml</code>
 
-### 哈蕾娜男友A$AP Rocky已获保释 此前因涉枪击被捕
+### 俄媒：俄罗斯人开始对存人民币感兴趣 存款明显增长
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1488.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/553350.shtml</code>
 
-### 周慧敏时隔七年宣布演唱会开启 8月31日首站澳门
+### 2022长春航空展：运油20将首次向社会公众展示
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/782711.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/1244207.shtml</code>
 
-### 中影携手中戏 开启战略合作新篇章
+### 波兰境内遭导弹袭击 北约和波兰均指向“乌克兰”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7899.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/18526.shtml</code>
 
-### 电影《红丝绸》预售开启 终极预告尽显硬核谍战
+### 麦卡锡：拜登诽谤了数千万美国人，应该道歉！
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/928216.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/253100.shtml</code>
 
-### “天启”主演惊悚片入围威尼斯电影节主竞赛单元
+### 美众议院监督委员会对拜登政府从阿富汗撤军发起调查
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2606.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/425803.shtml</code>
 
-### 昆汀说现在是好莱坞最烂时代 透露自己最棒的电影
+### 军事专家：运油20可为我国所有主战飞机进行空中受油
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3113256.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/0726497.shtml</code>
 
-### 首届澳涞坞五大洲电影节金莉花奖提名揭晓
+### 世界杯决赛场馆，中国造！外媒纷纷点赞
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/798888.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/10522.shtml</code>
 
-### 《天赐良机》发布正式预告 迪士尼再拍科幻动画片
+### 日本在小行星“龙宫”样本中首次发现液态水
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/837163.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/4664.shtml</code>
 
-### 动画《大旅行》定档4月8日 萌兽送熊猫宝宝回家
+### 乌克兰外长发推称军援谁都做得不够 俄外交官嘲讽
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/231356.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/84674.shtml</code>
 
-### 歌唱家斯兰现身2023央视跨年晚会演唱《故乡》
+### 美正计划2026年前重组驻冲绳海军陆战队？外交部回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/97146.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/7145.shtml</code>
 
-### 《我们是第一书记》发新海报 用勇气责任征服高峰
+### 日本警方："统一教"建筑设施外墙发现6个疑似弹孔
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3497584.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/813152.shtml</code>
 
-### MIRROR演唱会事故调查中 疑钢索断裂因金属疲劳
+### 美军连续两天从叙利亚偷油 出动车队转运盗采石油
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9169.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/73462.shtml</code>
 
-### 中餐厅5黄晓明成气氛调节器 备虾过程爆笑十足
+### 时隔5年 美航母打击群再度驶入韩国釜山海军作战基地
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/317528.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/5940475.shtml</code>
 
-### 高群书电影《生还》上映 抗联真实故事跨越八十载
+### 日本民众与熊猫香香道别 众多抽签落选粉丝含泪祝福
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7209.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/3671.shtml</code>
 
-### 赵亦涵出演《长津湖之水门桥》 吹响悲壮冲锋号
+### 外交部：望日方尽早干净彻底消除日遗化武遗骸
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/58649.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/9228.shtml</code>
 
-### 影迷评《海洋奇缘2》：画面精美 音乐动听
+### 罕见旱情威胁北半球粮食收成 全球粮价可能进一步推升
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8383338.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/160560.shtml</code>
 
-### “许言”聊《他乡》：也曾被骗 容貌焦虑照我写的
+### 德媒：德国总理朔尔茨确诊新冠肺炎，正处隔离状态
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9881.sHtML</code>
-
-### 《比爱你更爱你》入围大学生电影节实验短片单元
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/5347647.sHtML</code>
-
-### 《Soho区惊魂夜》发布终极预告 安雅泰勒魅力四射
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/215059.sHtML</code>
-
-### 海莉轻微中风接受心脏手术 比伯不断祈祷贴身照顾
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/9538264.sHtML</code>
-
-### 《超感星电音》总导演:电音离大家的生活并不遥远
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/449929.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/617250.shtml</code>
 
 ## 二、民生社会
 
-### A公馆乐队2022新专辑《滤镜》发布 同名巡演启动
+### 英国首相将抵美国 推进与澳大利亚的三方核潜艇协议
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8072904.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/121030.shtml</code>
 
-### 哥伦比亚影业成立百年 著名logo幕后故事曝光
+### “脱欧”三年后 英国离独立自主“大国梦”更远了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/52949.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/1341.shtml</code>
 
-### 2022第二届澳涞坞颁奖季在澳门开幕
+### 缅甸国防和安全委员会：全国紧急状态将再延长六个月
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3943096.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/103104.shtml</code>
 
-### 马思纯王俊凯范伟主演《断·桥》上映2日票房破亿
+### 俄副外长接任俄驻华大使 可能于今年来华赴任
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6547686.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/54515.shtml</code>
 
-### 《汉尼拔》富勒回顾感情线 《阿凡达》提供灵感
+### 玻利维亚囚犯装羊越狱失败:披羊毛外套 四肢着地逃跑
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/918861.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/714126.shtml</code>
 
-### 影迷评《误杀2》：亲情满溢 温暖感人
+### 外媒：乌克兰否认参与袭击白俄罗斯机场
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/668198.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/4452.shtml</code>
 
-### 影迷评《我是监护人》：真实感动 温暖人心
+### 局势紧张 武契奇派出军方高官前往与科索沃交界地区
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/99477.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/395469.shtml</code>
 
-### IMAX参展2021ChinaJoy 以“空间站”为主题设计
+### 特朗普：若再次当选将考虑全面赦免国会山骚乱参与者
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/89750.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/7138.shtml</code>
 
-### 《我的妈耶》北京首映免费抢票
+### 日本外相林芳正称中方邀请他访华 外交部:无消息提供
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1176479.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/9682291.shtml</code>
 
-### 《惊变28年》发布海报 惊悚噩梦卷土重来
+### 不顾重重反对 日本正式批准核污染水排海计划
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2982.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/8726.shtml</code>
 
-### 《猎人克莱文》票房惨败 创索尼漫改衍生最差记录
+### 德财长呼吁停止使用天然气发电 或推迟淘汰核电站
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2415.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/70041.shtml</code>
 
-### 巴基晒新作片场照 搭档朱丽安摩尔上演雌雄大盗
+### 美国地质调查局:加州北部尤里卡地区发生6.4级地震
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/133218.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/7154374.shtml</code>
 
-### 《我们恋爱吧3》大左加盟 伊能静戳中朱正廷痛点
+### 航行警告！黄海南部海上射击试验 禁止驶入
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1651869.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/09900.shtml</code>
 
-### 这些亲密关系热词 《再见爱人》主创有解读
+### 超30人遇难 土耳其一天内发生两起严重交通事故
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/55390.sHtML</code>
+来源：<code>h5.baike.nvqfz.cn/Article/492355.shtml</code>
 
-### 杰瑞德·莱托加盟新片《暗杀》 合作劳模姐
+### 英国日本选择联手？两国计划年底达成战机项目合作
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3570175.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/49784.shtml</code>
 
-### 布劳迪主演剧集《耶路撒冷地》发预告 血腥预警
+### 我国成功发射试验十六号A/B星和试验十七号卫星
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/074827.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1753036.shtml</code>
 
-### 海莉曝父亲吸毒成瘾 要帮比伯远离毒品尤其艰难
+### 中方此时发布涉乌立场文件，传递什么信号？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/270341.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/575918.shtml</code>
 
-### 影迷评《长津湖》：震撼人心 演技精湛
+### 扎哈罗娃：法国对俄媒体的“禁播令”不可接受
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6717012.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/66852.shtml</code>
 
-### 《灌篮高手》上映13周重回日本周末票房榜冠军
+### 安理会举行朝核问题公开会 中国代表阐述立场
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5407296.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/7910.shtml</code>
 
-### 第40届香港电影金像奖完全获奖名单
+### "问天"实验舱计划本月发射 "梦天"正样热试验完成
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/45472.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0664.shtml</code>
 
-### 影迷评《侏罗纪世界3》：视效震撼 紧张刺激
+### 日本列装超千枚远程导弹？ 专家：想表明有生产能力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7847215.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2950372.shtml</code>
 
-### 时隔两年！《俗女养成记2》首播收视破3 主创庆功
+### 西藏边检民警致敬“八一”：从军入警 无悔忠诚
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9867906.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/7893.shtml</code>
 
-### 电视剧《藏海花》发布组讯 南派三叔亲自担任编剧
+### 美国南部暴风雨天气已致7人死亡 其中含一名5岁儿童
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5101373.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/4369.shtml</code>
 
-### 影迷评《最初的梦想》：青春热血 温暖励志
+### 好战基因不断作祟臆想与中国开战 美又出新版本
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/177233.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8786823.shtml</code>
 
-### 00后唱作人周恩洋KILLA原创单曲《KLALALA》上线
+### 韩国前线部队机关枪意外走火：连射4枚子弹
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/79467.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/864380.shtml</code>
 
-### 限定剧《手枪》发布剧照 5月31日上线流媒体
+### 韩称发现朝军机180余条飞行轨迹 出动80余架战机应对
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/262769.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/53315.shtml</code>
 
-### 第79届威尼斯电影节发布官方海报：希望的象征
+### 台海巡队又以"越界"为由查扣大陆渔船 并扣押5名船员
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/270333.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/037943.shtml</code>
 
-### 近三月电影观众满意度达84.7分 《独行月球》领先
+### 俄罗斯布良斯克州发生爆炸 一货运列车脱轨
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/64906.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/9858786.shtml</code>
 
-### 黄渤倪妮新戏在港拍摄发生意外 伤者正在诊断治疗
+### 俄罗斯石油公司起诉德国经济部 会采取法律行动保护其资产
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8177.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/94236.shtml</code>
 
-### 《无限超越班》网课直播 李一桐id竟是“你大姐”
+### 针对中国！日媒热炒“华盛顿建议”在日部署中程导弹
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9936713.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1223.shtml</code>
 
-### 《狮子王：木法沙传奇》口碑平平 票房表现不俗
+### 麦卡锡一次又一次遭拒绝 世界围观美国众议长难产
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4937.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/54782.shtml</code>
 
-### 查理戴喜剧片《回心转意》发预告 拯救爱情大作战
+### 俄国防部：俄一军事训练场遇袭 致11人死亡15人受伤
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/21178.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/834772.shtml</code>
 
-### 网飞新剧《剖析丑闻》发布预告 当生活卷入了控诉
+### 佩洛西丈夫因酒驾被判囚5天缓刑3年 但可不在监狱服刑
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0874758.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/71870.shtml</code>
 
-### 影迷评《热辣滚烫》：幽默风趣 感人励志
+### 美国得克萨斯州入境口岸查获价值1190万美元冰毒
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8561.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/70239.shtml</code>
 
-### 艾薇尔格莱美后秀钻戒 被传与相恋一年的男友订婚
+### 波兰总统宣布:已向乌转交8架米格战机 将会再交付6架
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/00770.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/06325.shtml</code>
 
-### 微博观影团《第二十条》北京大年初五免费抢票
+### 尹锡悦暗示总统府没有未介入检方传唤最大在野党党首
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/488571.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/275970.shtml</code>
 
-### 《人生一串3》开播 续写市井烟火中的烧烤传奇
+### 日本一大巴高速路上翻车起火：黑烟滚滚 已致9人受伤
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3309300.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6817852.shtml</code>
 
-### 绿日乐队将拍电影 聚焦少年追梦之旅
+### 美记者爆料：为确保欧洲支持北约 拜登下令炸毁管道
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4525622.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/44481.shtml</code>
 
-### 微博观影团《维和防暴队》北京首映免费抢票
+### 国防部点赞厦门舰：台湾单方面划设的线非法无效
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4779.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/180060.shtml</code>
 
-### 《新蝙蝠侠》导演谈影片灵感 这个韦恩像涅槃主唱
+### 美国是名副其实的“监控帝国” 监控全球由来已久
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0010938.sHtML</code>
-
-### 微博观影团《九龙城寨之围城》北京首映抢票
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/1487443.sHtML</code>
-
-### 《白雪公主》反响不佳 票房评价均遭滑铁卢
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/0220191.sHtML</code>
-
-### 深津绘里与造型师男友交往顺利 爱情长跑已15年
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/585311.sHtML</code>
-
-### 麻园诗人《彩虹的微笑》录音室版上线
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/3995.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/941140.shtml</code>
 
 ## 三、科技产业
 
-### 新一部生化危机电影发剧照 久违惊吓体验将回归
+### 庆祝斯大林格勒战役胜利！普京签署总统令成立组委会
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3153461.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1783.shtml</code>
 
-### 《九龙城寨之围城》曝预告 全角色亮相热血上演
+### 斯洛伐克总理：能源价格飙升导致本国经济濒临崩溃
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9340336.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/94038.shtml</code>
 
-### 7月电影票房破50亿 《消失的她》暂为票房冠军
+### 克里米亚大桥发生爆炸起火 普京下令调查处置
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3148.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/73349.shtml</code>
 
-### 《未来中国》开启介孔世界 徐志胜谈材料成实力派
+### 普京视察克里米亚大桥时驾驶非国产车 佩斯科夫解释
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/12790.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2354.shtml</code>
 
-### 电影《我的初恋十八岁》定档“双十一”上映
+### 外媒：加拿大拟入美国牵头成立的“蓝色太平洋伙伴”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/63146.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/9941.shtml</code>
 
-### 专家评儿童电影《远山花开》：有温度、接地气
+### 人民日报钟声：究竟是谁在蓄意挑衅制造危机
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/112650.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2896161.shtml</code>
 
-### 第34届华鼎奖公布评委会名单 王海歌任主席
+### 俄运煤船现身台中港 岛内有人要求“滚回去”遭讽刺
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7459.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/84897.shtml</code>
 
-### 《去有风的地方》刘亦菲李现踏上追寻自我之旅
+### 普京：部分动员指令已全部下达并制定相应细则
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8161.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/4750241.shtml</code>
 
-### 网飞版《三体》公布首批演员 老王或将演史强？
+### 韩媒：自残、装精神病 韩国运动员为逃兵役手段迭出
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/75037.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/11033.shtml</code>
 
-### 微博观影团《志愿军：浴血和平》北京首映抢票
+### 梅德韦杰夫：新加入俄罗斯的领土可用核武器进行防御
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1366780.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1792567.shtml</code>
 
-### Mirror演唱会受伤伴舞首发声:安然面对长期治疗
+### 巴格达“绿区”冲突令外界忧心 美媒：伊最严重冲突
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/951876.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/064050.shtml</code>
 
-### 索尼首次！"蜘蛛侠：英雄无归"北美票房破5亿美元
+### 国际社会严厉批评佩洛西窜访用心险恶 坚定支持中方反制措施
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/81641.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6719.shtml</code>
 
-### 北京青年报评《脱口秀大会5》：继续探索继续进化
+### 俄驻美大使指责美国阻挠二战老兵赴俄庆祝胜利日
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/83064.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/934581.shtml</code>
 
-### 火起来的“小鲜综”不能只靠蹭热度
+### 杜金接受俄媒采访时明确表示：我女儿就是被袭击目标
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8460073.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/7068666.shtml</code>
 
-### 吴星星导演《黑楼惊魂》香港国际青年电影节获奖
+### 日本高官：不解决出生率下降问题 日本恐将不复存在
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/322443.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/4663.shtml</code>
 
-### 艾薇与偶像合作 携手华晨宇对唱《后来的我们》
+### 立陶宛总统：在俄乌冲突结束前 乌克兰无法加入北约
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/138569.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/183869.shtml</code>
 
-### 被调侃为中年疼痛文学 “中年偶像剧”杀回来了？
+### 美海岸警卫队在夏威夷附近监视俄船只
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6449475.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/03712.shtml</code>
 
-### 林志玲晒淡妆居家照 露幸福甜笑庆祝新书大卖
+### 美国北卡罗来纳州枪击案致6死：枪手多地作案
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6081.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0970.shtml</code>
 
-### 《我心飞扬》上映后 预测最终票房下降至一千万
+### 美众议院议长佩洛西丈夫承认酒驾 可不在监狱服刑
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/727422.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/760076.shtml</code>
 
-### 《杀死那个石家庄人》贝斯手获石家庄人才津贴
+### 日本东电：福岛核污水排海设施8月4日将正式开工
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/921938.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/89721.shtml</code>
 
-### 微博观影团《东极岛》北京首映免费抢票
+### 他们提议：中国应该建立这样一个国际联盟
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0994.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/9534679.shtml</code>
 
-### 2023“星耀曲江”演唱会阵容公布 预售即将开启
+### 拜登任副总统时涉密文件现身私人办公室 共和党讽刺
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2293.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8079246.shtml</code>
 
-### 《丛林奇航》内地定档 巨石强森大闹原始森林
+### 南非专家:美大发俄乌不义之财 给非洲国家带来灾难
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/20035.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6530118.shtml</code>
 
-### 舒淇为林心如庆生称其“瘦星” 两姐妹托腮可爱
+### 梅德韦杰夫：希望自己国家失败的人是叛徒 不能原谅
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/505655.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/034686.shtml</code>
 
-### 威神V回归倒计1天 《On My Youth》MV预告将公开
+### 所罗门群岛旧港翻修 中企拿下数百万美元合同
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4021801.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/78534.shtml</code>
 
-### 《我们这十年》谭松韵聂远演绎“新农人”
+### 荷兰一博物馆的中国瓷器遭窃：7件损坏，4件不知所踪
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1147.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0817554.shtml</code>
 
-### 福建省泉州市丰泽区影视文旅产业推介会举办
+### 基辛格：中国加入后 俄乌谈判年底前将迎来关键时刻
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/526417.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/289610.shtml</code>
 
-### “乡愁”伍宇娟艺术展北京开幕 影视圈好友力挺
+### 泽连斯基感谢意大利 称他正在乌克兰等待梅洛尼到来
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/285763.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/107253.shtml</code>
 
-### 《侏罗纪世界4》发布预告 异形恐龙惊悚登场
+### 蔡英文与佩洛西见面 国台办:"台独"是绝路外人靠不住
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/91204.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8734.shtml</code>
 
-### 《不要抬头》发布正片片段 美国白宫又被黑了
+### “美国涌现内战所有信号”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/913975.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/44306.shtml</code>
 
-### 安俊英出狱后再入职Mnet引争议 CJENM发声明道歉
+### 他对英国高官疯狂咆哮5小时：中国就是邪恶的！
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7993.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3403.shtml</code>
 
-### 《时间的答卷》展现奋斗者号总设计师叶聪的梦想
+### 俄媒：俄政府扩大不友好国家名单 新增希腊等4个国家
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9062170.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8193180.shtml</code>
 
-### 吴卓羲：认真做演员，轻松做自己
+### 英摇滚歌手“水爷”称自己上了乌克兰“死亡名单”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/46475.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8933.shtml</code>
 
-### 音乐节踩踏受害者最小9岁 斯科特或自掏腰包赔偿
+### 普京：俄粮食产量有望创纪录 将助他国解决粮食问题
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9370.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8488639.shtml</code>
 
-### 《最后生还者》剧照曝光 服化道满分还原游戏
+### 俄方要求美公布“北溪”天然气管道爆炸相关信息
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5860.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/288866.shtml</code>
 
-### 从《如懿传》到《总监》：如何与观众心有灵犀
+### 民调：大多数瑞典人反对本国为加入北约而修改法律
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/983592.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/5514016.shtml</code>
 
-### 潇湘电影集团：拍好红色电影 绽放红色文旅
+### 国台办：谋独挑衅是死路一条 挟洋自重是自取灭亡
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8951.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/20807.shtml</code>
 
-### 《君子盟》：拍得确实很“君子” 淡如水
+### 土耳其和俄罗斯达成用卢布结算部分天然气原则性协议
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/39092.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/51608.shtml</code>
 
-### 海伦娜回归《福尔摩斯小姐2》 再演伦敦传奇侦探
+### 俄军总参谋长格拉西莫夫出任特别军事行动部队总指挥
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/53229.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/070405.shtml</code>
 
-### 因音乐节演出事故 特拉维斯被明年的演出阵容除名
+### 谁动了北溪天然气管道？俄称拜登“有义务”给出回答
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3075.sHtML</code>
-
-### 艺术总监毛卫宁揭秘《我们这十年》创作密码
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/45868.sHtML</code>
-
-### 杨迪回应照片被当护体符：口罩一定比表情包管用
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/9244.sHtML</code>
-
-### 入围金钟想沾喜气 胡瓜戏言求合唱金曲歌后
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/907030.sHtML</code>
-
-### 《黑袍纠察队》第五季开拍 戏里戏外相爱相杀
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/299206.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/966205.shtml</code>
 
 ## 四、国际热点
 
-### 麦肯娜·格瑞丝加盟《惊声尖叫7》 稳定推进中
+### 中巴海洋卫士-2海上联演联合反潜和防空反导演练见闻
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/43140.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/25621.shtml</code>
 
-### 威神VSHOWCASE巡演正在进行 确认追加武汉场
+### 派对风波后，芬兰总理哽咽辩护：“我也渴望快乐”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3539.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8458.shtml</code>
 
-### 网飞《睡魔》剧集被取消 第二季将完结
+### 刚刚公告！“将新冠肺炎更名为新型冠状病毒感染 ”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0838.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/27515.shtml</code>
 
-### 乡村生活综艺：描绘乡村振兴美好蓝图
+### 台媒发现：这些台湾艺人昨晚转发“只有一个中国”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8529749.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/4371.shtml</code>
 
-### 休·杰克曼与狄波拉-李·福奈丝结束27年婚姻
+### 中国参加的这个军演，有三大亮点不得不说！
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/616540.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/653045.shtml</code>
 
-### 年轻版兰登亮相 剧版《失落的秘符》发预告
+### 国防部回应美新一轮对台军售：我军严阵以待随时回击
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5347.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1616167.shtml</code>
 
-### 《天使爱美丽》导演：今天我不可能再拍出这部片
+### 中国国家能源局局长视频会见沙特能源大臣
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3494645.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2037510.shtml</code>
 
-### 山下智久主演海外影视剧 剧集由四家公司共同制作
+### 韩美首脑会谈落空 发言失礼致尹锡悦好评率下滑
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/610701.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/61136.shtml</code>
 
-### 《完全未知》全球票房破亿 口碑优秀后劲十足
+### 美国又现暴力执法事件：3名警察挥拳猛击倒地男子
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3467749.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/12211.shtml</code>
 
-### 微博观影团《柯南：百万美元的五棱星》抢票
+### 普京给意前总统送酒庆生 欧盟委员会：违法制裁规定
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/870422.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6686.shtml</code>
 
-### 《东八区的先生们》差评如潮暴露了什么
+### 乌克兰全境响起防空警报 遭遇俄军大规模空袭
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1585.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/14339.shtml</code>
 
-### 易烊千玺新歌发布 鼓舞每一位追求理想生活的你
+### 西澳大利亚州遭遇“历史最严重洪灾” 澳总理发声
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6411803.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/5829.shtml</code>
 
-### 《绿灯军团》剧集首曝剧照 绿灯侠携手作战
+### 外务省:曾与“统一教”有关组织无偿提供900余万日元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/97812.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/7263059.shtml</code>
 
-### 爆款惊悚片《死神来了：血脉诅咒》定档8月22日
+### 美一男子持枪闯FBI大楼：已被击毙 或曾参与国会骚乱
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6595.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/62160.shtml</code>
 
-### 刘德华方辟谣代言某白酒产品 称保留法律追诉权利
+### 洪灾致3000万人无家可归 巴基斯坦进入国家紧急状态
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/54381.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2130.shtml</code>
 
-### 21年4000集 揭秘国内最“长寿”电视剧如何炼成
+### 德国已请求瑞士向其出售部分封存的“豹2”主战坦克
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0228678.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/421006.shtml</code>
 
-### 综艺《她·乡》上线受好评 精彩红苗婚礼抢先路透
+### 韩公布未来太空经济路线图：2032年登月2045年去火星
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/423037.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0645974.shtml</code>
 
-### 《新蝙蝠侠》上映8天破亿 全国开门影院不到一半
+### 美国暴力犯罪大增民众不安感加剧 胡椒喷雾销量飙升
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8282296.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8954.shtml</code>
 
-### 《云边有个小卖部》新预告 刘十三程霜天台对视
+### 法国总统马克龙表示将向乌克兰提供轻型坦克
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3015.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8167.shtml</code>
 
-### 美国电影独立精神奖颁发 《阿诺拉》囊括三项
+### 美民调：美国人称生活“很痛苦” 比例达14年来新高
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5894630.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0236.shtml</code>
 
-### 《大侦探8》用法治文艺节目创新普法形式
+### 印尼总统称普京将出席G20峰会 美英出来表态了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9234779.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/5810886.shtml</code>
 
-### 《无名之辈2》官宣第二部第三部
+### 台湾2名警员追捕嫌犯时遇袭 一人疑遭割喉
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/060712.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6446605.shtml</code>
 
-### 《弗兰肯斯坦的新娘》推迟上映 PTA新片改档
+### 武契奇:每个人都知道谁炸了北溪管道 却都在假装天真
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/630148.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/22035.shtml</code>
 
-### 《真爱找麻烦！》定档1月18日，开启爆笑之旅
+### 歼-15歼-16首飞试飞员：中国试飞员队伍可与西方比肩
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0878227.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/7303052.shtml</code>
 
-### 是枝裕和阪元裕二《怪物》公开海报和部分剧情
+### 美国专家：“北溪”管道泄漏 美国嫌疑最大
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/04449.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6151219.shtml</code>
 
-### 《了不起的麦瑟尔夫人》女主加盟西部惊悚片
+### 韩美将启动下半年联合军演 或重启团级以上规模联演
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/38967.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0067.shtml</code>
 
-### 喜羊羊出品方回应新版狼不再抓羊 否认曾被禁播
+### 拜登中东之行何以草草收场？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6097698.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/0593441.shtml</code>
 
-### 海来阿木首登2024年春晚舞台 献唱《不如见一面》
+### 俄驻美大使：美没以和平方式促进解决乌克兰危机计划
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3395.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/52600.shtml</code>
 
-### 《叛逆者》：见人物命运，见悲剧情怀
+### 安理会通过对刚果（金）两项相关决议 中方表态:欢迎
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/52306.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/45787.shtml</code>
 
-### 《转生大作战》上海首映礼 邪恶主角团悉数登场
+### 佩斯科夫：俄罗斯将针对日本制定反制措施
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/96994.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/50827.shtml</code>
 
-### 《只此青绿》被抄袭 创作岂能只此一招？
+### 韩国：3月1日起，中国旅客入境后无需再接受核酸检测
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/64229.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/4956577.shtml</code>
 
-### 日本电影网站评选2022年最吸引人的演员和作品
+### 韩国男子闯进学校 点燃韩国国旗升起日本国旗后被捕
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5433823.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3901.shtml</code>
 
-### 金晨再发微博疑似回应 此前模仿卡塔尔王子引争议
+### 美机台湾海峡南口高强度抵近侦察 目标或为军事演习
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/696781.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6959.shtml</code>
 
-### 国庆档影片满意度对比 多元供给丰富观众假期生活
+### 台杀警嫌犯被逮捕现场有人喊“要拍到署长” 遭痛批
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2613960.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/5561.shtml</code>
 
-### 蔡崇信把中国音乐带去美国 将在纽约举办演唱会
+### 埃尔多安：希望能够组织一次俄乌总统会晤
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/120815.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/928592.shtml</code>
 
-### 电影《白色闪电》开机 青春因你而献上
+### 印度专家：西方保持沉默 破坏“北溪”真相不言自明
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1404960.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/938374.shtml</code>
 
-### 新浪观影团《夺宝奇兵：命运转盘》免费抢票
+### 泽连斯基敦促西方国家提供更多武器 称目前只得到其所需10%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/829386.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/04461.shtml</code>
 
-### 《未来中国》中国工程院院士李建刚追太阳40年
+### 巧合？佩洛西窜台行程刚结束 美所谓"挺台"议案延期
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/160989.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1652364.shtml</code>
 
-### 刘诗诗与何超莲合照 漂亮姐姐同框赏心悦目
+### 对俄飞地实施禁运 立陶宛200多家运输公司面临破产
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/86712.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/12486.shtml</code>
 
-### 张学友《日出时让街灯安睡》学会放下才能领悟
+### 朔尔茨会见王毅：尽早启动下一轮政府磋商
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/58350.sHtML</code>
-
-### 陆虎晒0713聊天记录 疑似被张远调侃长痔疮
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/134658.sHtML</code>
-
-### 新浪观影团《神秘海域》提前观影免费抢票
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/1434975.sHtML</code>
-
-### 《剧本鲨》王源用土味情话找线索 魏大勋获得MVP
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/8943832.sHtML</code>
-
-### 电影《749局》预售开启 王俊凯开启热血冒险
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/2182.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/463423.shtml</code>
 
 ## 五、文体娱乐
 
-### 朱迪福斯特加盟电影《奈德》 饰演著名游泳教练
+### 台媒炒作:“汉光”演习将模拟解放军“突袭”台北港
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/051916.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/28209.shtml</code>
 
-### 影迷评《白蛇2：青蛇劫起》：画风唯美 特效精致
+### 匈牙利总理：乌克兰已沦为“无主之地” 堪比阿富汗
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/35355.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/996116.shtml</code>
 
-### 裘德·洛主演《克里姆林宫的魔术师》 饰演普京
+### 韩国检方开始对文在寅前政府展开搜查？被批政治报复
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/592836.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8720870.shtml</code>
 
-### 张馨予发文反对虐待动物：这是可怕的蝴蝶效应
+### 普京签署了批准俄联邦海军理论和舰队船舶宪章的法令
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/24431.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/691427.shtml</code>
 
-### 影迷评《狗神》：惊艳表演 感动落泪
+### 美国空军一架B52轰炸机对俄圣彼得堡市进行模拟打击
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/786739.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1345601.shtml</code>
 
-### 朋友晒生日派对视频 蕾哈娜小露孕肚快乐挥手
+### 泛美卫生组织：12个美洲国家面临小儿麻痹症暴发风险
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1536.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6483571.shtml</code>
 
-### 李雨《女孩》入选“造乐计划” 音乐力量演绎心声
+### 想一下就能解密？“特朗普解密法” 共和党内引争议
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3007387.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/250598.shtml</code>
 
-### 马丽谈作为职场妈妈的感受：度日如年 会偷偷哭
+### 美媒：日本寻求对外加强防务合作
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9536.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/197345.shtml</code>
 
-### 《标题党》发预告 互联网时代如何定义“我是谁”
+### 克宫：炒"北溪"事件新料系"恐袭"制造者想转移注意力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/993454.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3151.shtml</code>
 
-### 韩寒现身《风流一代》路演 观众评“中国底色”
+### 特朗普发“圣诞快乐” 内涵了很多人
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/51660.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8516698.shtml</code>
 
-### 历史题材影片《何叔衡》热映 革命情怀引人共鸣
+### 歼-20首飞试飞员李刚回忆：初见歼-20时感觉怦然心动
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8325508.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/1526578.shtml</code>
 
-### 评《周振天创作艺术论》：有开拓性的诚心之作
+### 中国代表在联合国人权理事会发言反对干涉柬埔寨内政
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7888.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/213492.shtml</code>
 
-### 王海歌担任首届澳涞坞五大洲电影节评委会主席
+### 韩美联合军演正式启动 韩国民间团体出来集会抗议
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3245072.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/008079.shtml</code>
 
-### 王晶女儿晒照为父庆生 曝光王晶一家四口全家福
+### 波兰将向德索要1.3万亿美元二战赔款？德外交部回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8275882.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6223.shtml</code>
 
-### 《99.9》大感谢祭活动 松本润道枝骏佑将惊喜到场
+### 嫦娥五号着陆区，有重大发现！
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/966481.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/114504.shtml</code>
 
-### 皮克斯新剧《胜与败》调整内容 删除跨性别角色线
+### 美知名经济学家：美国经济或将面临硬着陆或通胀失控
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5901.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/16245.shtml</code>
 
-### 告别角色也“内卷”？演员们爱上了写小作文
+### 美韩在半岛西部海域上空联训 美军出动F35等多型战机
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/82552.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6682311.shtml</code>
 
-### 《城市猎人》曝北条司创作海报 沿用原版配音演员
+### 俄罗斯能源部部长：俄方不会亏本供应石油天然气
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/148535.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/5370.shtml</code>
 
-### 电影《热搜》定档12月1日 曝定档预告及海报
+### “美欧注视下，俄乌两国只能互相放血”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/36611.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3062.shtml</code>
 
-### 2022中国电影美学年会在线上顺利召开
+### 克宫：俄总统普京视察了特别军事行动部队联合指挥部
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0559633.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/85346.shtml</code>
 
-### 斯蒂芬金小说《Later》改编新剧 刘玉玲将主演!
+### 美国多名飞行员发现一个大型白色气球 在夏威夷以东
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3929.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3821219.shtml</code>
 
-### “蝙蝠侠”贝尔新片曝光 聚焦牧师如何变成罪犯
+### 国防部：中新将举行“中新合作-2023”海上联合演习
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4865.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/801517.shtml</code>
 
-### 《全员加速中》确认重启！现已发布猎人招募令
+### 奥巴马警告：别老盯着特朗普 多关注选民关心的问题
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/59170.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/98167.shtml</code>
 
-### 感情稳定 李嘉欣晒合影为许晋亨庆祝50岁生日
+### 美军与两家船厂签订合同：设计下一代驱逐舰DDGX
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/809449.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/791891.shtml</code>
 
-### 影迷评《第二十条》：笑中带泪 贴近生活
+### 土外长批评：美在石油减产问题上施压沙特是欺凌行为
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3942.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/685872.shtml</code>
 
-### 影迷评《走走停停》：有笑有泪 温暖治愈
+### 中国和巴基斯坦“密谋阿富汗领土”？阿塔回应：谣言
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1311.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/3367.shtml</code>
 
-### 职场分对错还是利弊？ 《理想之城》引发热议
+### 乌克兰军队担心被俄军突然袭击 乌多个地区加紧防御
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/00215.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/316322.shtml</code>
 
-### 《绑架游戏》定档10月12日，谁能笑到最后
+### 国际原子能机构：总干事将先去基辅 再前往莫斯科
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/87659.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6829183.shtml</code>
 
-### 黄柳霜传记片正在开发 嘉玛·陈主演并担任制片人
+### 英超豪门前球员在土耳其失联 几小时前刚打入制胜球
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/654096.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/501700.shtml</code>
 
-### 陈小春张智霖等回归 《大湾仔的夜2》开启美食季
+### 日本首相确诊后取消外访 美国第一夫人新冠检测转阴
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/627598.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/6868298.shtml</code>
 
-### 网飞版《安娜卡列尼娜》 《金刚狼2》女星将主演
+### 韩国踩踏事故成了岛内政治战由头：硬扯到台北大巨蛋
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/188728.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/20645.shtml</code>
 
-### 坏痞兔回应穿裙装引发争议：我不能给衣服定性别
+### 美国防部：未发现F-35中国产零件有风险 将寻求豁免
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3917.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2540.shtml</code>
 
-### 影迷评《长安的荔枝》：演技惊艳 笑中带泪
+### 澳大利亚总理：还没有收到访华邀请 若收到将会接收
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6376.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/322509.shtml</code>
 
-### 日版《梨泰院Class》男主造型曝光 竹内凉真主演
+### 福岛第一核电站1号机组反应堆压力容器底部或现穿孔
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9290620.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/54893.shtml</code>
 
-### 《奇异剧本鲨》限定CP组专属年轻人的“相亲局”
+### 日外相将首次访问三岛国 日媒又渲染“对抗中国”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/07155.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/29253.shtml</code>
 
-### 《乌海》制片人追忆涂们:有他在大家心里都有定力
+### 大连海事局：黄海北部8月15日至20日将执行军事任务
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6647.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/671918.shtml</code>
 
-### 虚拟世界变现实 《阿盖尔：神秘特工》玩转谍战
+### 首场主场外交大戏，受邀的为何是中亚五国？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3258929.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/764293.shtml</code>
 
-### 影迷评《妈妈的神奇小子》：温馨励志 催泪感人
+### 俄副总理：对俄石油限价将使俄石油减产至必要水平
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/76136.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/27033.shtml</code>
 
-### 美国影视金球奖颁出 《野兽派》《幕府将军》获奖
+### 美媒披露部分特朗普海湖庄园被扣押文件内容
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6516419.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/2245.shtml</code>
 
-### 影迷评《小孩不笨3》：有笑有泪 引发深思
+### 韩国进行“独岛军演” 日外务省抗议：绝对无法接受
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/390643.sHtML</code>
-
-### 威尔保尔特加盟《银护3》 饰演人造英雄亚当术士
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/082093.sHtML</code>
-
-### 金球奖提名公布 《艾米莉亚·佩雷斯》创纪录领跑
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/10665.sHtML</code>
-
-### 《战至巅峰》看片会热议不断 久哲Gemini远程连线
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/731739.sHtML</code>
-
-### 《中国潮音》半决赛特邀萧敬腾直呼“意想不到”
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/5787.sHtML</code>
+来源：<code>h5.blog.rczgi.cn/Article/8962.shtml</code>
 
 ## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 *数据来源：新浪财经、公开媒体报道*
