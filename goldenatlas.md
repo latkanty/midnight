@@ -1,901 +1,821 @@
 # AI Builders Digest 今日热点快报
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 ---
 
 ## 一、国内时政
 
-### 《身在高地》女主角出演DC新片《蝙蝠少女》女主
+### 为何不采取电芯倒置方案 尚界汽车：正置电芯是更优解
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1145653.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/2879.shtml</code>
 
-### 《三大队》预告海报曝光 主要阵容角色首度官宣
+### 国家邮政局对极兔速递立案调查 回应：安全生产是不可逾越的红线，高度重视，全面整改
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/872828.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/328560.shtml</code>
 
-### 战争片《肉馅行动》曝剧照 科林费斯重归二战题材
+### 向董明珠提问要先买脱谷机？格力电器回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/243293.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/2212.shtml</code>
 
-### 纪录片《中国》激活"市井文化"里的中国精神基因
+### 群策科技港股IPO：突击清仓式分红28亿控股股东拿走九成 产销高度依赖关联方25年业绩转弱背离行业趋势
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6810578.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/51893.shtml</code>
 
-### 《余生，请多指教》出演顾肖 翟子路看重表演细节
+### 荣耀X80 Pro Max详细规格曝光 超大电池成最大亮点
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2302.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/342620.shtml</code>
 
-### 致敬经典修复电影论坛在苏举行 聚焦影片修复技术
+### 对话君智咨询谢伟山：AI企业最该补齐的短板，是从技术思维转向市场思维
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/33329.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/883977.shtml</code>
 
-### 第四届澳涞坞颁奖季拉开序幕
+### “液冷龙头”申菱环境：海外和液冷高增长推动股价上涨 一季度财报“遇冷”高增长能否持续？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8125.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/0404.shtml</code>
 
-### 演技惊人！《芬奇》的机器人原来是戛纳影帝演的
+### 软银孙正义寄望“超级AI” 瞄准6.189万亿美元净资产价值
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/648735.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/193755.shtml</code>
 
-### 本尼芙伊主演新片发剧照 塔伊加·维迪提客串亮相
+### Seedance 2.5将于7月上线，服务具身智能、工业制造等产业场景
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/05987.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/18522.shtml</code>
 
-### 金姐为不刺激侃爷 与戴维森多人约会不晒恩爱
+### 国产车终结日系车28年霸主地位！中国成澳洲汽车最大进口国 比亚迪立大功
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/868311.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/0703.shtml</code>
 
-### 《西区故事》女主受邀担任奥斯卡颁奖嘉宾
+### 存储价格疯涨！2026年全球智能手机产量预计下滑16.2%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/39340.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/715659.shtml</code>
 
-### 第34届华鼎奖获奖名单:《杰伊·比姆》获最佳影片
+### 11999 → 10399 元：华为 Pura X Max 淘宝 618 补贴开启，淘金币可抵 559 元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2954926.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/7435.shtml</code>
 
-### 歌迷突发不适 豆荚猫暂停演出呼吁救人为先
+### 2026年迄今销量TOP10车型出炉：小米YU7冲到第4
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/74481.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/1787735.shtml</code>
 
-### 格温多兰加盟Netflix 加盟蒂姆·伯顿剧集首秀
+### 英国电信与Verizon联手成立一家40亿美元的国际合资企业
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/226299.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/58202.shtml</code>
 
-### 冯绍峰新剧向陈宝国讨教演技 和张丰毅相约健身
+### 高德充电发布"神算Agent"，用AI重构充电站选址与定价逻辑
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/477487.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/1717.shtml</code>
 
-### 山下智久新片《SEE HEAR LOVE》公开预告片
+### 转向手感也可以 OTA：东风首款自主线控转向系统进入量产倒计时
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/67457.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/6317734.shtml</code>
 
-### 本尼主演新片《犬之力》发剧照 牛仔马上回眸
+### 华为何刚用AI创作歌曲《鸿蒙之光》：全长4分钟 曲风轻快优雅
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/80341.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/84331.shtml</code>
 
-### 张晓涵跨界出演音乐剧《梦见狮子》饰京剧坤生
+### AirTrunk据悉接近提交上市申请 或为新加坡2017年以来最大规模IPO
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/53578.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/553350.shtml</code>
 
-### 碧梨科切拉音乐节摔跤 用幽默向粉丝化解尴尬
+### 油车车主 替电车交了多少养路费？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8707948.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/1244207.shtml</code>
 
-### 第30届华鼎奖评委名单公布 张涵予担任评委会主席
+### 徐志胜封神！唯一精准命中2：2，AI却集体看走眼比利时
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/63790.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/18526.shtml</code>
 
-### 伍德蕾将主演《三个女人》 故事聚焦女人情感生活
+### 理想汤靖“回怼”蔚来：为什么斌哥会在发布会上讲 48v 比 800v 更领先？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/962629.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/253100.shtml</code>
 
-### 《人生切割术》续订第三季 系列观看量创纪录
+### 余承东：华为ADS平均安全行驶里程是中国车主的4倍 已避免447.9万次碰撞
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/97105.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/425803.shtml</code>
 
-### 电影《四渡》预售开启 见证用兵如神背后真实历史
+### 长城炮新车亮相：16.68万元起，NEDC综合续航可达1081km
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0250.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/0726497.shtml</code>
 
-### 央华版《如梦之梦》北京站部分场次取消
+### vivo黄韬、韩伯啸：告别看剧专用，X Fold6凭何成为主力机？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/62182.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/10522.shtml</code>
 
-### 阿尔文谈新剧有亲热戏霉霉反应：她应该不会追剧
+### 总规模17.5亿元，IDC首发中国智能体开发平台市场份额报告
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/31225.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/4664.shtml</code>
 
-### 现实！制片人谈《理想之城》孙俪赵又廷感情线
+### 百度文心网站合并升级，功能矩阵全面扩容
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/14893.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/84674.shtml</code>
 
-### 影迷评《神探大战》：环环相扣 过瘾刺激
+### SpaceX路演拆解：星舰发射成本降幅超99%，企业AI业务潜在市场达20万亿美元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1992.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/7145.shtml</code>
 
-### 《星际宝贝》真人电影热度高 预告观看量历史第二
+### 苹果折叠屏iPhone Ultra黑色机模首次亮相：阔比例、内屏挖孔
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/971729.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/813152.shtml</code>
 
-### 《咒怨》导演新片曝海报 日本定档8月11日
+### 无界动力完成超2亿美元天使轮融资，京东关联基金出资
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5379.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/73462.shtml</code>
 
-### 威神V正展开正规2辑活动 showcase巡演落下帷幕
+### 4万亿美元 美国AI三巨头集体上市“抢钱”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9205.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/5940475.shtml</code>
 
-### 影迷评《妈妈！》：演技精湛 感人至深
+### AI终于不乱猜了？英格兰与克罗地亚两战打出近乎“标准答案”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/52650.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/3671.shtml</code>
 
-### 微博观影团《异人之下》北京首映免费抢票
+### 华为鸿蒙 HarmonyOS 7 花粉 Beta 适配机型公布，含 Mate 60、Pura 70、畅享 70X 等
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6073.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/9228.shtml</code>
 
-### Dr.Dre和前妻离婚 结束24年的婚姻
+### vivo TWS 5 Pro 上手体验：无线 TWS 迈入 Hi-Fi 时代
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1607395.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/160560.shtml</code>
 
-### 《我的世界》电影发布制作特辑 畅游方块天地
+### DeepSeek首轮500亿元融资细节曝光：估值4000亿，腾讯、宁德时代都来了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9778.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/617250.shtml</code>
 
-### 布兰妮监管结束后放飞自我 未婚夫与儿子关系良好
+### 消息称美机构采用 Anthropic Mythos 模型对政府软件开展安全审计，已排查出大量安全漏洞
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/69310.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/121030.shtml</code>
 
-### “盛夏琴音2022”艺术节闭幕 奏响北京音乐厅
+### 清程极智：AI Ping已接入30+主流服务商、600+大模型服务
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2054390.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/1341.shtml</code>
 
-### 三十年八十多次 王健：演任弼时是生活的一部分
+### B 社工会声援 XBOX 被裁员工：微软高层还要错到何时
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/25884.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/103104.shtml</code>
 
-### 第4届新时代国际电影节将于12月在澳门举办
+### 仅用 26 个月完成开发，全新日产 Skyline 今年冬季亮相
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/24736.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/54515.shtml</code>
 
-### 托尼奖得主布茨新剧曝光 聚焦“短信自杀”案件
+### 小米智能存储硬盘兼容认证名单出炉：含西数、希捷、东芝共 20 款型号
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8568.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/714126.shtml</code>
 
-### “全民目击”续作IP全布局 《过渡空间》暑期上映
+### 苹果：AI 加速网络攻击工具开发，因此将提前向用户发布 iOS 更新
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/429447.sHtML</code>
-
-### 影迷评《闪电侠》：打斗过瘾 搞笑不断
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/372560.sHtML</code>
-
-### 王海歌获美国国会议员刘云平表彰
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/53446.sHtML</code>
-
-### 微博观影团《封神第二部》主创见面会免费抢票
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/827097.sHtML</code>
-
-### 霉霉2023巡演或将于11月开始售票 规模盛大受期待
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/6951451.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/4452.shtml</code>
 
 ## 二、民生社会
 
-### 韦礼安婚后首露面！曝求婚细节逼哭老婆
+### 东风奕派 M8 汽车订单突破 1 万台：搭载华为乾崑智驾 ADS 5 Pro，预售价 19.98 万起
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6256345.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/395469.shtml</code>
 
-### 华鼎奖欲创一流娱乐奖项 取消不到场不颁奖规定
+### 五菱华为联手发力！华境S 6月交付5689台 跻身大六座第一梯队
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7126588.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/7138.shtml</code>
 
-### 人民日报海外版评抗疫题材剧：要好看还要走心
+### 涉案金额近亿？奢侈品牌THOM BROWNE，揪出了藏在东莞的“假货帝国”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4304267.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/9682291.shtml</code>
 
-### 影迷评《爆款好人》：京味十足 爆笑不断
+### 孙天祥入职百度，担任基础模型研发部负责人
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/86412.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/8726.shtml</code>
 
-### 英国戏剧大师彼得布鲁克去世 享年97岁
+### 汽车圈“不服就直播”？岚图卢放：这是好现象，用户不能总被忽悠
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/975975.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/70041.shtml</code>
 
-### 张学友60+巡回演唱会揭开序幕 澳门首场开唱
+### 影石Luna Ultra影像解析：夜景能力给到夯
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1183.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/7154374.shtml</code>
 
-### 影迷评《鬼灭之刃无限城篇》：视听盛宴
+### 三部门：支持外资企业参与提振消费行动，不得以外资为由进行排斥
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/881607.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/09900.shtml</code>
 
-### 王泽鹏发长文 晒与李玟聊天记录录音
+### 视频 | 对话格力电器CMO朱磊：算力的终点是电力，边界是制冷
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/20925.sHtML</code>
+来源：<code>wap.baike.nvqfz.cn/Article/492355.shtml</code>
 
-### 第34届华鼎奖提名揭晓 四国影片角逐最佳
+### 长城基金刘疆：AI 基建赋能产业高景气，光通信板块依旧值得期待
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6741891.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/49784.shtml</code>
 
-### 陈凯歌新片《志愿军》定档国庆 影片仍在拍摄中
+### 鸿蒙智行智界 RX 新车亮相：四激光雷达矩阵、华为巨鲸电池，余承东透露还有更多创新科技即将首发
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4594160.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1753036.shtml</code>
 
-### 从被批到获赞？《灌篮高手》非常规宣传引发关注
+### NVIDIA推出Cosmos 3世界模型，黄仁勋：物理AI爆发时代近在眼前
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0867.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/575918.shtml</code>
 
-### 谢楠节目中谈吴京 称他为了拍戏最长一年半没回家
+### 腾讯“吐司” iOS 版正式上线，将推出开发者模式支持应用一站式上架
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/94213.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/66852.shtml</code>
 
-### 《狂飙》“老默”扮演者冯兵:希望下次演正面角色
+### 亚马逊因流媒体合同问题遭澳大利亚监管机构起诉
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/11243.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/7910.shtml</code>
 
-### 汪可盈档期原因退出《飞天小女警》 不再饰演花花
+### 腾势N8L闪充版上市：首搭超级智能体迪迪虾，售价31.98万元-34.98万元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9550.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0664.shtml</code>
 
-### 科幻最终章《熊出没•重启未来》浪漫告别科幻
+### AI的新价格语言，算力何以成期货
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7519936.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2950372.shtml</code>
 
-### 奥斯卡影帝西恩·潘：美国男人变得很女性化
+### “泼天的富贵落到我头上？”重庆29岁工人世界杯预测32中31
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3461592.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/7893.shtml</code>
 
-### 动画《伍六七》第三季全球上线 传递对生活的热爱
+### 内存厂商10倍利润的好日子不会太长：年中见顶 全靠中国厂商发力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4705.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/4369.shtml</code>
 
-### 2022猎鹰计划文化润疆短片创作季在京启动
+### 鸿蒙智行智界 RX 新车通过工信部申报：可选 160+277kW 华为双电机四驱版本，极速 251 km/h
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3498.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8786823.shtml</code>
 
-### 《我们都是追梦人》汇聚“与时代同行”的力量
+### 格力AIDC数据中心液冷方案发布，PUE降至1.1
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/76353.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/864380.shtml</code>
 
-### 网飞拿下最新一部《德州电锯杀人狂》全球发行权
+### 华擎展示“太极”十周年纪念硬件和“幻影电竞”显卡原型设计
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7220.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/53315.shtml</code>
 
-### 演员赵涛担任东京国际电影节评审 亮相开幕式
+### 美团LongCat-2.0正式开源 国产芯片厂商集体同步适配
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7042.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/037943.shtml</code>
 
-### SUPER JUNIOR官宣亚巡 或将于下半年团体回归
+### 阿维塔 07L 新车 5 色齐发：弦月银、漠白、墨黑、岩灰、星紫，7 月正式发布
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/441146.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/9858786.shtml</code>
 
-### 《打卡吧！吃货团2》开播在即 深度趣味全面升级
+### 说鸿蒙是安卓套壳都是无脑黑！华为朱懂东：替代Windows的鸿蒙PC已1岁表现超预期
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/267586.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/94236.shtml</code>
 
-### 刘雪华探讨亲子关系：我们总把坏脾气给最亲的人
+### 梅西双响，12大AI全对，中移九天精准猜中2:0
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/00003.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1223.shtml</code>
 
-### 影迷评《柯南新剧场》：打斗精彩 景色优美
+### Momenta 官宣搭载量突破百万，合作品牌含奔驰、宝马、奥迪等
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2766620.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/54782.shtml</code>
 
-### 酷我音乐ing场景音乐上线 打造可视可听沉浸体验
+### 巴西出局，9个AI和五位预言家全错：《人机大战》被挪威改写了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7311.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/834772.shtml</code>
 
-### 周杰伦为黄雨勋打call 透露他有参与新专辑编曲
+### 七彩虹iGame X870E白火神主板惊艳亮相：完美搞定SSD、GPU带宽之争
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0607965.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/71870.shtml</code>
 
-### 《未来中国》神经生物学家畅谈脑科学与类脑研究
+### AI接管直播间 618直播电商走向多极化
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/96256.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/70239.shtml</code>
 
-### 日本票房：《剧场版 咒术回战0》连续两周夺冠
+### 快手造芯！全国产3D堆叠芯片已流片
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/01724.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/06325.shtml</code>
 
-### 吴珊卓主演剧情喜剧《讲席教授》预告发布
+### 苹果：AppleStore生态规模突破1.4万亿美元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/330338.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/275970.shtml</code>
 
-### 陈小春张智霖拜师学做菜 《大湾仔的夜》正式营业
+### 华为开发者大会2026明天开幕！余承东出席 鸿蒙7蓄势待发
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0624.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6817852.shtml</code>
 
-### 《刺猬索尼克3》发布新预告 动物组联手对战强敌
+### 搜狗输入法全面适配鸿蒙系统
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3063.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/44481.shtml</code>
 
-### 微博观影团《雄狮少年2》北京首映免费抢票
+### Fortinet 2026年全球威胁态势研究报告：AI驱动网络犯罪量飙升，勒索软件受害者年增389%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0618.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/180060.shtml</code>
 
-### 初冬档观赏性传播度同提升 四部影片满意度超83分
+### 一文看懂苹果WWDC26：库克谢幕，系统提速，Siri终于聪明了？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1197576.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/941140.shtml</code>
 
-### 郎昆：我们的话剧是向《茶馆》等经典致敬！
+### 零一汽车港股IPO：经销渠道收入占比显著异于同行且存在第三方回款 无人重卡收入不足千万占比仅1.5%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9248.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1783.shtml</code>
 
-### ITZY将回归？新专辑发售日期意外公开引期待
+### 联想控股董事长宁旻：全球竞争的核心是科技与产业主导权的竞争
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/953671.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/94038.shtml</code>
 
-### 东方卫视《未来中国2》收官 解密生命基石蛋白质
+### 理想汽车 CEO 李想力挺增程系统：技术关键不在于选择什么路线，而在于是否能为用户带来真实价值
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/752328.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/73349.shtml</code>
 
-### 《之后4》发布情人节海报 哈丁和泰莎终迎大结局
+### 首款搭载宁德时代电池的重载人形机器人上岗
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9621.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2354.shtml</code>
 
-### 影迷评《学爸》：温馨治愈 引人深思
+### 难以置信 博主上手华为Pura X Max后被征服：再换回iPhone 17 Pro Max不习惯
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/47460.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/9941.shtml</code>
 
-### 白举纲发文承认已婚 左立宁桓宇陆虎转发送祝福
+### 近百家私募现身上半年成立ETF前十大持有人名单
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/893864.sHtML</code>
-
-### 《波西·杰克逊》剧版已确认 演员选拔工作正进行
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/62027.sHtML</code>
-
-### 《地下情》《富贵逼人》4K修复版放映活动举办
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/6273212.sHtML</code>
-
-### 《天赐的声音3》：好音乐是节目的全部
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/9938.sHtML</code>
-
-### 《三大队》发布终极预告海报 追凶路亦是人生路
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/683845.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2896161.shtml</code>
 
 ## 三、科技产业
 
-### 渡边大北乃纪伊时隔8年再合作 讲述影城幕后故事
+### 满配华为乾崑智驾！东风奕派M8官宣本月开启预售
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7757.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/84897.shtml</code>
 
-### 问诊明星失德：从艺不重修德 明星或成流星
+### 丰田、本田等日本 8 家车企统一放宽零部件标准：外观稍有瑕疵也能用，原材料供应紧张
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/896145.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/4750241.shtml</code>
 
-### 影迷评《银河护卫队3》：制作精良 搞笑逗趣
+### 美国造车新势力 Rivian 交付 R2 纯电 SUV，剑指大众市场与自动驾驶
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/99488.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/11033.shtml</code>
 
-### 豁牙超可爱！陈冠希四岁女儿掌镜与姐妹自拍
+### 京东健康宣布实现百万村庄覆盖，发起“百村云药箱”公益计划
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6751082.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1792567.shtml</code>
 
-### 《我爱你！》导演韩延透露将拍摄“暮年三部曲”
+### 消息称今年 Q3-Q4 的安卓旗舰 SoC 机型起步价可能接近 6 开头
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/634778.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/064050.shtml</code>
 
-### 影迷评《红猪》：浪漫唯美 温暖治愈
+### 传小红书本月在香港提交IPO申请，公司暂无回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/662781.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6719.shtml</code>
 
-### 第九届平遥国际电影展“平遥创投”剧本征集开启
+### 全球DRAM短缺催生百亿大单：长鑫存储获腾讯多年期服务器芯片订单
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/39170.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/934581.shtml</code>
 
-### 新浪观影团《长空之王》五一假期免费抢票
+### 单月营收破10亿，字节跳动终于等来自己的“AI印钞机”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/21353.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/7068666.shtml</code>
 
-### 麻园诗人亮相云南春晚 XR技术演绎《现在现在》
+### 黄仁勋：中国是世界重要科技产业中心
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/12194.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/4663.shtml</code>
 
-### 吉克隽逸妈妈熬夜看世界杯 感叹梅西进球太厉害
+### 联泰科技港股IPO：股权高度分散创始人因内斗被逼走并另起炉灶 毛利率远低于同行净利率不足0.5%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/189806.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/183869.shtml</code>
 
-### 松竹新浪潮代表导演之一吉田喜重去世 享年89岁
+### 华为首款鸿蒙商用台式机今年9月杀到：7nm麒麟X90处理器加持
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8369.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/03712.shtml</code>
 
-### 《圆桌派》第五季重磅回归 邓亚萍谈乒乓奥运风云
+### 欧阳娜娜：作为新手相信智驾比相信自己更多，现在开车已经离不了智驾
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/327091.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0970.shtml</code>
 
-### 华鼎奖世界青年电影短片大赛启动
+### 摩根士丹利：预计到 2040 年，SpaceX 收入将达 3.4 万亿美元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8316741.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/760076.shtml</code>
 
-### 影迷评《魔方小姐》：燃爆赛场
+### 转战闭源遇挑战：消息称 Meta 一再推迟上线 AI 模型 Muse Spark
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3871663.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/89721.shtml</code>
 
-### SM新女团Hearts2Hearts今日出道 主打曲公开
+### 华为申请汽车类“世界”商标初审公示：此前还曾申请仙界、天界、绝界等
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/907276.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/9534679.shtml</code>
 
-### 《权利的游戏》演员约翰·斯塔尔去世 享年68岁
+### 恋与深空敖尹取消上线，承诺不再推出新男主
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/249805.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8079246.shtml</code>
 
-### 李响回应与林志炫争执 表示磨合是为了更好的发展
+### 谷歌敲定云计算大单：每月向SpaceX支付近10亿美元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7094.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6530118.shtml</code>
 
-### 俄罗斯电影院将放映连续剧以应对制裁
+### 氢内燃机成燃料电池低成本替代方案，川崎重工、丰田布局多元氢能装备
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9930.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/034686.shtml</code>
 
-### 微博观影团《老枪》北京首映主创见面会抢票
+### 逼玩家选N卡！A卡涨价自捅一刀：这下更没人买了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/403031.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/78534.shtml</code>
 
-### 赵涛出席第36届东京电影节评审团发布会
+### 何小鹏辟谣加价2万插队提车，已增开模具提升GX产能
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0128.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0817554.shtml</code>
 
-### 常远: 我还在期待喜剧的“神来之笔”
+### 风阻系数低至0.24Cd！岚图追光S官宣全车10组贯穿式风道、19个风口
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/20696.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/289610.shtml</code>
 
-### 创造宇宙音乐节将举行 范丞丞方预付2000张门票
+### 零跑朱江明：智驾芯片实在是太过剩了 全年芯片仅一两千万片 市场多达14款
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2114.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/107253.shtml</code>
 
-### 杨幂给男生的送礼建议：红包，越多越好
+### 张兴海之子张正萍接任赛力斯汽车公司董事长，曾参与并主导与华为合作
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/392186.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8734.shtml</code>
 
-### 黄志忠：演员要走正道 通过作品来影响人
+### 蔚来先进制造新桥二工厂获评全球“灯塔工厂”，李斌发文感谢
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7673.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/44306.shtml</code>
 
-### 《小满生活》杀青 秦昊蒋欣王鸥解读“人间真实”
+### 荣耀Magic9系列跟进苹果方形前摄：竖握拍横图，体验升级但成本攀升
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/72868.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3403.shtml</code>
 
-### 《以父亲之名》电影节获奖 张涵予新片首轮口碑
+### 比亚迪 5 月在韩销量首破千辆，特斯拉超越宝马登顶进口车销冠
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/78332.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8193180.shtml</code>
 
-### 新浪观影团《十年一品温如言》百老汇免费抢票
+### 特斯拉计划 10 月起将德国柏林工厂产量提高 20%，并招聘 1000 名员工
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/468088.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8933.shtml</code>
 
-### 陈浚桦表示与MC张天赋无联络 两人曾合作惹绯闻
+### 苹果今年计划生产1000万部折叠屏iPhone
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0740.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8488639.shtml</code>
 
-### 《呼啸山庄》新版电影定档 罗比艾洛蒂主演
+### 城堡准备付费从其他对冲基金收集交易洞见 再将其纳入自身量化策略
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1122062.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/288866.shtml</code>
 
-### “大湾区明珠”伍珂玥问鼎好声音 开启音乐星途
+### 货拉拉公布整改成果：取消强制车贴，降低平台费率
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/95305.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/5514016.shtml</code>
 
-### 《我们的歌5》回归 三代歌手同台传唱时代金曲
+### 阿维塔 07L 中大型 SUV 设计手稿公布，新车确认首搭华为乾崑智驾 ADS 5
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/341753.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/20807.shtml</code>
 
-### 微博观影团《用武之地》北京首映免费抢票
+### SK 海力士最新计划：2030-2031 年 DRAM 晶圆产能实现翻倍，月产量达百万片
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6903900.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/51608.shtml</code>
 
-### “非专业”演员逆袭要靠好作品
+### 企业人工智能支出创新高 如今面临兑现时刻
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/5817491.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/070405.shtml</code>
 
-### 朴彩英否认与泰勒斯威夫特合作 仅受邀参加派对
+### 特斯拉：Cybercab已在美国得州奥斯汀开启工程测试
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9146.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/966205.shtml</code>
 
-### 太妍今天下午回归 公开新歌《Heaven》音源与MV
+### 21车冻货集体“偏航”，律师称运满满平台需承担民事连带责任，官方暂无回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/402576.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/25621.shtml</code>
 
-### 影迷评《好东西》：笑声不断 打动人心
+### 限时 11.48 万元起，广汽丰田铂智 3X 骑士版车型上市
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/621892.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8458.shtml</code>
 
-### 脱口秀新人毛豆炸场：我可讲的“破事儿”特别多
+### 企业微信证内测“大圆”agent，可自动理解用户诉求并结合对应场景给出回复
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/182505.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/27515.shtml</code>
 
-### 新浪观影团《中国乒乓之绝地反击》免费抢票
+### 腾讯音乐曾志中：AI技术在音乐行业具有双面性，倡导行业构建合规生态
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1925960.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/4371.shtml</code>
 
-### 新浪观影团《满江红》卢米埃影城免费抢票
+### 何小鹏：小鹏MONA M03累计交付量突破28万台，连续两个月销量超过所有燃油轿车
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2413218.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/653045.shtml</code>
 
-### NCT最后一支分队NCT WISH将出道 2月21日在日出道
+### 售价约4000元！绿联发布DXP2800 GT双盘位NAS：AMD锐龙R2514+10GbE
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2877525.sHtML</code>
-
-### 微博观影团《志愿军：存亡之战》首映抢票
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/4573751.sHtML</code>
-
-### 《神偷大军》发布正式预告 银行职员转行做抢匪
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/10353.sHtML</code>
-
-### 影迷评《蚁人与黄蜂女》：高潮迭起 笑点频出
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/90627.sHtML</code>
-
-### 影迷评《灌篮高手》：青春热血 重燃赛场
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/33170.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1616167.shtml</code>
 
 ## 四、国际热点
 
-### 微博观影团《解密》北京首映免费抢票
+### 即日起，安卓备份数据将占用谷歌账号存储空间
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/684079.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2037510.shtml</code>
 
-### 《指环王：力量之戒》官宣续订 第三季春季开拍
+### 消息称三星电子展示全球首款 5nm MRAM 研发成果，目标 2027 年量产
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/53172.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/61136.shtml</code>
 
-### 赵雷温情献唱《我爸没说的那件事情》主题曲
+### 特斯拉陶琳介绍车窗内层玻璃厚度降至 1.1 毫米，小米雷军转发称 YU7 和新 SU7 也是
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/304396.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/12211.shtml</code>
 
-### 华纳电影明年恢复院线窗口期 新片有《蝙蝠侠》等
+### 游戏周边制造商 McFarlane Toys 意外泄露 B 社《辐射：新维加斯》重制版
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4728422.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6686.shtml</code>
 
-### 国产悬疑剧的“生存之道” 创新切入点引爆流量
+### 世界杯32强12大AI预测成绩放榜：腾讯夺冠，deepseek 仅列第四
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/998662.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/14339.shtml</code>
 
-### 《巴黎最后的探戈》幕后将拍剧 施奈德控诉被侮辱
+### 宇树科技科创板 IPO 审核状态更新为“提交注册”：拟募资 42.02 亿元，冲刺 A 股人形机器人第一股
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/33971.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/5829.shtml</code>
 
-### 吴莫愁担任公益推广官 联名数字藏品发售
+### 影石高管发声：专利诉讼期间遭遇黑水军攻击，异常账号集体涌现
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/27359.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/7263059.shtml</code>
 
-### 《丛林奇航》将拍续集 巨石强森布朗特双双回归
+### SpaceX股票预示首日开盘价将比IPO发行价高出29%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1351.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/62160.shtml</code>
 
-### 《驯龙高手》发布新预告 人龙合作友谊长存
+### 奇瑞：与塔塔集团合作为零部件供应，没有在印度市场直接投资和技术转让等安排
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9959972.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2130.shtml</code>
 
-### 王霏霏首张概念专辑发布 用音乐构筑异想世界
+### 传腾讯正洽谈成为Manus的最大股东，官方暂无回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4763718.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/421006.shtml</code>
 
-### 影迷评《金手指》：演技精湛 阵容强大
+### 华为896线激光雷达上车！岚图追光S 6月26日首发：120米外识别14cm障碍物
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/75818.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0645974.shtml</code>
 
-### 《底线》：现实温度的成功与伦理化策略的失灵
+### 淘宝闪购：世界杯催生“日酒夜咖”“啤酒+早餐”同单组合增长近8成
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/09314.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8954.shtml</code>
 
-### 热血国风！井胧携歌曲《骁》唱响元宵晚会
+### SK海力士计划赴美发行ADR募资290亿美元 以支持人工智能业务扩张
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/7807405.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8167.shtml</code>
 
-### 影迷评《白蛇：浮生》：画风唯美 赏心悦目
+### 曝字节跳动加码国产算力：洽谈采购天数智芯 5 万颗推理芯片，互联网大厂竞速算力基建
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/306849.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0236.shtml</code>
 
-### 韩国歌手DonSpike吸毒被判 终审判决两年有期徒刑
+### 凯恩“双响”逆转背后：这一进球的裁判视角被球迷“看清”了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0172.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/5810886.shtml</code>
 
-### 防弹少年团V专辑再创成绩 夺日本Oricon周榜冠军
+### “AI电源龙头”麦格米特增收不增利背后：业绩兑现为何滞后于股价？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/68706.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6446605.shtml</code>
 
-### 黄圣依自称“计划狂魔”孩子手脱臼仍安排钢琴课
+### 李斌现场演示蔚来ES8装载21个行李箱，喊话称“豪华轿车请升级”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/579837.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/22035.shtml</code>
 
-### 辛晓琪“疗伤那天后”演唱会中国澳门站5月开唱
+### 莫全怪AI 研究称招聘放缓才是美国年轻人就业难主因
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9369.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/7303052.shtml</code>
 
-### 四年前遭街头枪击身亡 蕾哈娜发帖怀念早逝表弟
+### 苹果把摄像头塞进AirPods：史上最智能的无线耳机明年发
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6731311.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6151219.shtml</code>
 
-### 《唐宫夜宴》编剧揭秘“唐宫小姐姐”诞生幕后
+### 李想手拿芯片玩起“举桌子”梗：给我拍张照片吧，要不然网上留下的都是我举桌子的
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6801.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0067.shtml</code>
 
-### 影迷评《疯狂动物城2》：画面精美 笑点密集
+### 广东移动联合华为完成全国首个用户级 5G-A 动态切片验证，为 VIP 提供目标速率保障
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2493.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0593441.shtml</code>
 
-### 编剧朱历：不敢将《女心理师》定位为职业剧
+### 消息称月之暗面寻求 20 亿美元融资，估值较去年 12 月暴涨 7 倍
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6828.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/52600.shtml</code>
 
-### DC运作新片《泥脸》 詹姆斯·瓦特金斯执导
+### 鸿蒙智行焕新尚界 H5 推出甄选现车，有望 1-2 周内快速提车
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/941222.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/45787.shtml</code>
 
-### 《超女：明日之女》宣布开拍 米莉·阿尔柯克主演
+### Meta 让步：员工可暂停鼠标键盘数据收集 30 分钟
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/383376.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/50827.shtml</code>
 
-### 日本男团JO1上海开唱 亚洲巡演正式收官
+### 华为全新教育空间支持计划公布，7 月起陆续适配 MatePad Edge 等平板
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0572394.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/4956577.shtml</code>
 
-### UNIS将于4月携新专回归 并启动亚洲巡演
+### 何小鹏：期望L03是小鹏全球销量最大的一款车
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/232583.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3901.shtml</code>
 
-### 《烈火战车》第二季发布预告 定档暑期开播
+### 全球首个 华为、国家电网联合打造端到端光通信网
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/42389.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6959.shtml</code>
 
-### 国庆档电影《前任4：英年早婚》曝分手后遗症特辑
+### 华为凌霄子母路由 Q7 电线版星闪电竞专链功能首批支持机型公布，含 Pura 90、nova 16 等系列
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/669185.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/5561.shtml</code>
 
-### 新浪观影团《世间有她》卢米埃影城抢票
+### 德国世界杯失利|越强大的AI，也越需要在现实的草皮上摔一跤
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/12988.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/928592.shtml</code>
 
-### 《柳浪闻莺》金鸡展映 华语电影新面孔阚昕亮相
+### 微信：WeChat Pay HK 现已支持华为 HarmonyOS 鸿蒙系统，香港地区用户消费更方便
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0631.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/938374.shtml</code>
 
-### 黄磊发文为张艺兴庆祝30岁生日 师徒情令人感动
+### 华为小艺 Claw 接入开源盘古 2.0 Pro 模型，可重点提升鸿蒙系统级任务执行能力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/3044624.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/04461.shtml</code>
 
-### 吴磊：“萧闯”那份大智慧我自愧不如
+### 李佳琦直播间：618“他经济”升温 素颜霜等销量增速超150%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/84051.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1652364.shtml</code>
 
-### 知名动画《降世神通：最后的气宗》真人版曝主演
+### 阿里Qoder企业版全球发布，可提供企业级知识库和安全能力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/05443.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/12486.shtml</code>
 
-### 中国电影基金会第六期吴天明青年编剧研习班闭幕
+### 官宣！阿维塔07L新车搭载华为乾崑896线激光雷达
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/277129.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/463423.shtml</code>
 
-### 《星汉灿烂》轻喜剧群像传递成长共鸣
+### 名爵将在古德伍德速度节期间推出全新纯电小车，消息称将是 MG2
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/42206.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/28209.shtml</code>
 
-### 总演主角少年时期的边天扬想尝试更多专属角色
+### 韩 Fabless 企业济州半导体计划利用 SK 海力士产能制造 LPDDR5 内存
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9192786.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/996116.shtml</code>
 
-### 带兄弟上春晚？再就业男团：收到“暗号”了！
+### 苹果提高 Mac、iPad 等产品价格，以应对内存短缺
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/22386.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8720870.shtml</code>
 
-### 日本口碑综艺《跟拍到你家》推出剧版 龙星凉主演
+### CPU重回AI算力聚光灯下 国产厂商有望迎来双重机遇
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/8624.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/691427.shtml</code>
 
-### 东方神起将于12月26日回归，新专辑今日开启预售
+### 一汽大众多款新车空调口狂喷粉末：官方称无害遭专家反驳
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/26259.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1345601.shtml</code>
 
-### 《惊奇队长2》内地正式定档11月10日 同步北美
+### 苹果经销商被指“趁火打劫”：对已付款订单追索近2万元差价
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0791.sHtML</code>
-
-### 《邪恶力量》三兄弟重聚 出演《黑袍纠察队》
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/5051.sHtML</code>
-
-### 血腥校园！《我知道你去年夏天干了什么》曝剧照
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/45746.sHtML</code>
-
-### 《白雪公主》全球票房破亿 跌幅高回本难
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/11801.sHtML</code>
-
-### 赵汉唐导演推介新片《北回归线以北》
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/11671.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6483571.shtml</code>
 
 ## 五、文体娱乐
 
-### 影迷评《误判》：动作畅快淋漓 剧情直戳人心
+### 英伟达Kyber NVL144机架架构或遭遇延迟：PCB成关键瓶颈
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/963812.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/250598.shtml</code>
 
-### 影迷评《浪浪山小妖怪》：绝美画风 制作精良
+### 豆包打通飞书被指对标微信 官方表态：没有该计划
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/84739.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/197345.shtml</code>
 
-### 影迷评《默杀》：悬念迭起 冲击人心
+### 被指在长城敲日本太鼓，Lululemon、朱一龙发声明回应
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/82215.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3151.shtml</code>
 
-### 《余生，请多指教》出演顾肖翟子路看重表演细节
+### 鸿蒙桌面OS拿下唯一II级认证！华为朱懂东：如果是安卓套壳拿不到证书
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/74239.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8516698.shtml</code>
 
-### 广电总局确定120档2022年度广播电视重点节目
+### 700亿创维，黄宏生谋变
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6567.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/1526578.shtml</code>
 
-### 《超能一家人》首映获赞 艾伦沈腾模仿马丽魏翔
+### SpaceX 收购 AI 编程独角兽 Cursor，交易估值 600 亿美元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/394343.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/213492.shtml</code>
 
-### 外国健身网红质疑金钟国 称其使用药物打造身材
+### 消息称努比亚将全部核心资源集中投入第二代豆包 AI 手机，暂时收缩传统手机业务
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9589.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/008079.shtml</code>
 
-### 韩剧收视：《真的出现了》再破20 《金师傅》稳升
+### 一位期刊主编的警示：发表“内卷”正在拖垮同行评审
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/302092.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6223.shtml</code>
 
-### 冈田将生铃木唯被拍 电车约会亲密浪漫
+### 消息称鸿蒙智行全面引入电池二供，国轩高科将上车问界
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/049801.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/114504.shtml</code>
 
-### 青岛影视博览会金海鸥主题活动举办 推荐荣誉作品
+### 荔枝保鲜10天好果率高达98.4%！格力CMO朱磊：好冰箱，还是格力造
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0348373.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/16245.shtml</code>
 
-### 洛天依献唱《精灵旅社4》中文版主题曲上线
+### 中国移动：6月起将对传统通话进行重大升级，陆续上线通话字幕等多项智能服务，无需额外付费
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2795673.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6682311.shtml</code>
 
-### 《极限挑战》自助旅行  体验光雾山的风土人情
+### 欧洲多地持续高温，速卖通上移动空调全面售罄
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1210.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/5370.shtml</code>
 
-### 中国电影导演协会2024年度荣誉初评入围名单揭晓
+### 中国移动董事长陈忠岳：移动智能 无界普惠丨MWC上海2026
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/04591.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3062.shtml</code>
 
-### 赵丽颖申请对侵权方限制消费 案由系名誉权纠纷
+### 字节CEO发布全员邮件：时隔4年更新领导力原则
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/90051.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/85346.shtml</code>
 
-### 电影《热搜》上海路演 网络舆论有海啸般的力量
+### 零跑全新C系列三款车型焕新上市，上市指导价12.58万-16.98万元
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/934864.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3821219.shtml</code>
 
-### 于明加许圣楠主演话剧《渐入佳境》首轮演出收官
+### 为星闪音频规模化铺路：华为 nova 16 系列手机（含 z）全系支持星闪 E2.0 功能
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/845001.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/801517.shtml</code>
 
-### 《密室大逃脱5》4D点映会 NPC突然现身沉浸感拉满
+### 微信AI要来了！腾讯单日大涨超10% 市值一天增4000亿
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/671779.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/98167.shtml</code>
 
-### 日媒曝杰尼斯事务所税费漏报 共计约65亿日元
+### 京东MALL首批实习机器人员工上岗
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/04877.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/791891.shtml</code>
 
-### 《一日行》第十季回归！体坛众星畅聊赛场内外
+### 黄仁勋：英伟达中国市场营收占比仅剩9%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/64006.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/685872.shtml</code>
 
-### 新浪观影团《热搜》上海首映免费抢票
+### 华为手机5G杀回海外！Pura 90s Pro/Max上架预订
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/11972.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/3367.shtml</code>
 
-### “大湾区哥哥”梁汉文：我是一个50岁的“新人”
+### 东风风行签约华为乾崑智驾，首款落地车型星海 V6 下半年上市
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/763743.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/316322.shtml</code>
 
-### 新丽出品《卿卿日常》爆火出圈 两人三餐温暖治愈
+### 华为 nova 16 / Pro / Ultra 手机首销：麒麟 9010S 处理器，2999 元起
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/262325.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6829183.shtml</code>
 
-### 成龙电影周举办论坛 共论功夫电影未来之路
+### 「国补」风波下的影石创新：大批股东抛售，市值跌超六成，新款线上断货，刘靖康遇「本命劫」？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6575625.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/501700.shtml</code>
 
-### 乡村生活综艺：打造现代人的“武陵源”
+### 东风奕派 M8 汽车官宣搭载「全置换新风系统」，宣称有“诺贝尔奖级黑科技”加持
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/2701.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/6868298.shtml</code>
 
-### 影迷评《你行！你上！》：笑点密集 酣畅淋漓
+### 哥伦比亚央行董事Ana Fernanda：开放合作与金融互联互通是全球经济发展的重要动力
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/55592.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/20645.shtml</code>
 
-### 《雪落下的声音》直击人心 陆虎迎来又一春
+### 同程旅行宣布将以超14亿港元收购嘀嗒出行，交易完成后维持嘀嗒出行在香港联交所上市地位
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/899505.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2540.shtml</code>
 
-### 青春励志电影《立水桥北》将于电影频道首播
+### 涉及三星 SK 海力士等十余家客户，新思科技宣布停供 EES、FDC 等传统晶圆厂控制软件
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/53291.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/322509.shtml</code>
 
-### 2021德国电影展放映 贾樟柯赵涛担任宣传大使
+### 中国队缺席世界杯，近2700万人次为何涌入一场“AI预测人机大战”？
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/408539.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/54893.shtml</code>
 
-### 《一见倾心》剧组发声明反盗版 呼吁观众支持正版
+### “毒纸尿裤”上演五连反转：Babycare等企业发声明回应、学会直指报道瑕疵、记者晒证据“反击”
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0230654.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/29253.shtml</code>
 
-### 新浪观影团《这个杀手不太冷静》超前观影场抢票
+### 华创新材港股IPO：毛利全靠加工费支撑利润空间薄弱 百亿债务压顶现金储备已是杯水车薪
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/4780.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/671918.shtml</code>
 
-### 影迷评《雄狮少年2》：制作精良 燃情热血
+### 德国出局，Kimi大模型惨遭打脸：300个Agent也防不住点球大战
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/998782.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/764293.shtml</code>
 
-### 两部剧追完完整故事 古装大制作拆分播会成常态吗
+### 程刚：KOOK不是“中国的Discord”，今年商业化收入预增超200%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/631263.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/27033.shtml</code>
 
-### 张信哲“未来式终极版”演唱会六月放歌鸟巢
+### 代号叶问！华为搭载史上最大电池畅享100 Pro Max正式立项
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/6600194.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/2245.shtml</code>
 
-### 微博观影团《刺杀小说家2》北京首映免费抢票
+### 苹果代工厂塔塔电子被黑，部分 iPhone 18 Pro 与 A20 Pro 资料确认泄露
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/66410.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/8962.shtml</code>
 
-### 吴磊《启航》中首演年代戏 长发造型增添成熟感
+### 全国首艘海上火箭回收船亮相！星际荣耀SQX-3完成海上回收全流程模拟考
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/9030724.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/0468047.shtml</code>
 
-### 《奥本海默》即将开拍 基里安·墨菲进行大量准备
+### 卖了30年显卡后 英伟达带着新AI芯片来重新发明个人电脑了
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/345957.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/86944.shtml</code>
 
-### 大本博恩瑟兄弟联手 《会计刺客2》再破悬案
+### 下一代显示标准 苹果未来跟进BT.2020色域：华为Mate 80 RS已率先商用
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/86758.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/30526.shtml</code>
 
-### 《喜剧大赛2》收官 某某某少爷和我获年度冠亚军
+### 华为鸿蒙 HarmonyOS API 设备量占比数据更新，6.1.0 以下版本合计不足 6%
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/62931.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/823418.shtml</code>
 
-### 是枝裕和谈日韩电影业差距：日本还有许多要学的
+### 报道称大众汽车计划裁员10万人并关闭部分汽车工厂
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/1534.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/320374.shtml</code>
 
-### 王鹤棣方发维权进展说明：案件已通过立案审核
+### 打破日系车省油神话！奇瑞发动机热效率达48.57%：居全球首位
 
-来源：<code>www.mobile.ypwgv.cn/Article/details/0149336.sHtML</code>
-
-### 新浪观影团《我们的冬奥》首映观影免费抢票
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/98104.sHtML</code>
-
-### 外媒曝麦当娜已邀请水果姐 参与其最新专辑制作
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/353227.sHtML</code>
-
-### Ella回应网传《乘风2023》初舞台第一：看看就好
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/4699648.sHtML</code>
-
-### 《嗨放派》云交流会 嘉宾团奇思妙想嗨翻全场
-
-来源：<code>www.mobile.ypwgv.cn/Article/details/730716.sHtML</code>
+来源：<code>wap.blog.rczgi.cn/Article/729095.shtml</code>
 
 ## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分39秒*
 
 *数据来源：新浪财经、公开媒体报道*
