@@ -1,549 +1,821 @@
 # AI Builders Digest 今日热点快报
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分27秒*
 
 ---
 
 ## 一、国内时政
 
-### 大摩Wilson警告：半导体股正在复制白银的走势——狂欢之后是哑火
+### 新加坡新总理危机感中迎接新挑战
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4928.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7633950.shtml</code>
 
-### 宁德时代注册资本增至约45.6亿元
+### 中国驻巴布亚新几内亚大使慰问当地遇袭侨胞
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1178246.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/08537.shtml</code>
 
-### 王府井：董事刘天祥因工作安排辞职
+### 摩洛哥南部6.8级地震已致30人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/952240.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/56328.shtml</code>
 
-### 航发科技：独立董事毛中根辞职
+### 佩斯科夫：若美方没收俄罗斯海外资产 将导致严重后果
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9310.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/856073.shtml</code>
 
-### 龙迅股份赴港：AI硬件链的下一轮定价，轮到视频和接口芯片了
+### 日本为什么老谈“失去的十年”？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2719413.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/673799.shtml</code>
 
-### 资产未实现真实转移 东方资产陕西分公司被罚42万元
+### 加泰罗尼亚地区选举，“分离派”十多年来首次落败
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6385490.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/67085.shtml</code>
 
-### 2026中期策略展望：均衡配置，去伪存真 | 国联民生金工
+### 澳大利亚想送给乌克兰退役“大黄蜂”战机，乌官员：我们不要飞行垃圾
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6936.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/52601.shtml</code>
 
-### 新易盛今日大宗交易平价成交16.5万股 成交额8398.5万元
+### 罕见！美军或在地中海东部部署第二艘航母
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/40685.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/617316.shtml</code>
 
-### 易会满的利益结构洞
+### 日本首相：感谢金正恩
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/80424.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/24759.shtml</code>
 
-### A股今日共159只个股涨停
+### 最新！法国扣留一飞机，机上载有303名印度人
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9264385.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/00765.shtml</code>
 
-### 京新药业拟1亿元-2亿元回购公司股份 回购价不超19元/股
+### 埃及现任总统塞西赢得新一届总统大选
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5851.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7258805.shtml</code>
 
-### 盘前，集体跳水！AI泡沫？高盛最新发声
+### 反华议员用“兵棋推演”诓骗美国企业，他们会上当吗？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4156062.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6977.shtml</code>
 
-### 上半年A股新开户数超2016万户
+### 2025中法文化之春新闻发布会成功举办，开启艺术交流新旅程
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/732655.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1965.shtml</code>
 
-### 博思软件（300525）：中标内蒙古自治区财政厅采购项目，中标金额为326.00万元
+### 以军称已有219名以军士兵在加沙地带地面军事行动中死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/322835.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1386902.shtml</code>
 
-### 酷特智能亮相香港“青岛优品”推介会，KTOS登陆青港合作舞台
+### 美媒：美国今年“大规模持枪杀戮事件”达38起，刷新纪录
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/195409.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/04162.shtml</code>
 
-### A股“天价”离婚，男方股份悉数转让，女方分走约2.46亿元
+### 乌议会通过声明：战时取消总统选举
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9177973.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/78970.shtml</code>
 
-### 车企半年成绩单陆续出炉 有车企上半年交付量同比增97%
+### 文在寅痛批尹锡悦政府：无知、无能、无道
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2649.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/569394.shtml</code>
 
-### 07月02日磷酸一铵4523.33元/吨 20天上涨3.19%
+### 泰国曼谷市中心一商场发生枪击事件致多人死伤
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/883613.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/791809.shtml</code>
 
-### 科创50指数低开低走跌7.7%，半导体、算力硬件板块大幅回撤
+### 朝中社：再不能让美国把世界当做食物“饱食作乐”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/271569.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6392230.shtml</code>
 
-### 中微半导：研发的存储产品二季度开始出货
+### 俄罗斯政府宣布暂停出口强筋小麦
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/261897.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7551.shtml</code>
 
-### 远洋建管签约四方光电高端传感器产业基地，为科创板上市企业提供全过程代建
+### 美国联邦最高法院8日开始审理前总统特朗普参选总统资格上诉案
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6858217.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/70132.shtml</code>
 
-### 朱可炳调研中国中冶并慰问干部职工
+### 一夜跌到34年前，日元加速坠落“没有新鲜事”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/015543.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/761360.shtml</code>
 
-### A股“具身智能第一股”来了！宇树科技IPO注册生效，谁还在排队
+### 美官员：美国正努力将更多军援物资运抵乌克兰
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/75455.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6803283.shtml</code>
 
-### 超700万人次见证湾区热度！珠江实业再立潮头封面标杆
+### 美国参议院投票否决两党边境和军援法案
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/12988.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1245.shtml</code>
 
-### 千里科技：6月汽车整车销量8311辆 同比下降17.73%
+### 齐塞克迪宣誓就任刚果（金）总统
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/415150.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6549.shtml</code>
 
-### 深圳楼市的「高端局」，又热闹起来了
+### 胡塞武装谴责美英空袭 称将进行反击
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/42389.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/71828.shtml</code>
 
-### 西宁特钢：向特定对象发行股票申请获证监会同意注册批复
+### 基辛格的思想遗产：超越大国平衡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4199.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/574809.shtml</code>
+
+### 岸田文雄首访南美，日媒频频扯上中国
+
+来源：<code>www.mobile.rczgi.cn/Article/3673.shtml</code>
+
+### 美国防部宣布向乌克兰提供1.75亿美元军事援助
+
+来源：<code>www.mobile.rczgi.cn/Article/3710120.shtml</code>
+
+### 美使馆突然示警：莫斯科将有恐袭！
+
+来源：<code>www.mobile.rczgi.cn/Article/7890477.shtml</code>
+
+### 拜登反对拜登又一例！华春莹再晒对比图
+
+来源：<code>www.mobile.rczgi.cn/Article/33733.shtml</code>
+
+### 越南首都河内附近发生4.0级地震
+
+来源：<code>www.mobile.rczgi.cn/Article/044958.shtml</code>
+
+### 乌媒爆料：泽连斯基正绕过乌军总司令和军官沟通
+
+来源：<code>www.mobile.rczgi.cn/Article/5029.shtml</code>
+
+### 临时停火协议正式生效 加沙北部民众：我们不被允许回家
+
+来源：<code>www.mobile.rczgi.cn/Article/3055.shtml</code>
+
+### 意总理要严惩海外代孕 支持“将代孕定为普遍犯罪”
+
+来源：<code>www.mobile.rczgi.cn/Article/200678.shtml</code>
+
+### 金正恩出席庆功宴
+
+来源：<code>www.mobile.rczgi.cn/Article/97532.shtml</code>
+
+### 巴黎地标红磨坊风车叶片掉落
+
+来源：<code>www.mobile.rczgi.cn/Article/818637.shtml</code>
+
+### 印度一在建桥梁坍塌致1人死亡 仍有约30人被困
+
+来源：<code>www.mobile.rczgi.cn/Article/8854139.shtml</code>
+
+### 美说唱歌手领完奖后便被捕
+
+来源：<code>www.mobile.rczgi.cn/Article/8570.shtml</code>
+
+### 安理会将于4月19日审议巴勒斯坦入联申请
+
+来源：<code>www.mobile.rczgi.cn/Article/8163009.shtml</code>
 
 ## 二、民生社会
 
-### 一家营收超12亿元的保险科技公司，如何用AI叙事撑起240亿港元市值
+### 美加州郡长：对中国有意见？你去过吗？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/811688.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/266727.shtml</code>
 
-### 2026下半场的“K型”引力
+### 联合国：巴以冲突短短11天，逾30万名儿童流离失所
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3968.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4578284.shtml</code>
 
-### 国产AI分野时刻 1个智谱顶7个MiniMax
+### 美股三大指数集体收涨 道指、标普500齐创新高
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/450662.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/55349.shtml</code>
 
-### 凯撒旅业（000796）、世纪华通（002602）股民索赔案俊再提交立案，均有胜诉
+### 针对中国，日本这么早就去做特朗普工作了？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1715.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4682.shtml</code>
 
-### 【看科创】天岳先进：持股5%以上股东减持触及1%刻度
+### 美国得克萨斯州发生枪击案 致3死2伤
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0938.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/0295381.shtml</code>
 
-### 远程股份（002692）：中标中江经济技术发展有限公司采购项目，中标金额为428.00万元
+### 普京发声！信息量极大
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/07542.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/85317.shtml</code>
 
-### 安闻科技IPO状态变更为已问询
+### 新型坦克亮相！金正恩指导坦克部队训练
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5853.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/849837.shtml</code>
 
-### 海目星（688559）：中标因湃电池科技有限公司采购项目，中标金额为160.00万元
+### 印尼西爪哇省发生食物中毒事件 已有114人就医
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/152325.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/84200.shtml</code>
 
-### 拿下一栋百年洋房！资本大佬家族加码港资房产
+### 英国《卫报》：拒不归还掠夺文物，大英博物馆虚伪
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/151302.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7807999.shtml</code>
 
-### 商务部回应中美农产品关税安排 原则同意纳入对等降税框架
+### 俄官员定调：叛国事件
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2098287.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/715626.shtml</code>
 
-### 22亿收购净资产仅4330万的亏损标的 晋景新能跨界算力的“5000%溢价赌局”
+### 日本能登地震灾后三个月 仍有超8000人处于避难状态
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/525445.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4940.shtml</code>
 
-### 陈果：今天A股多数股票都有调整，但不会持续太久，三季度向上空间更多，这些方向会有所表现
+### 巴以冲突已致双方超万人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/298735.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/908570.shtml</code>
 
-### 汉缆股份（002498）：中标滨州市沾化区诚信建筑有限公司采购项目，中标金额为951.72万元
+### 科摩罗最高法院宣布阿扎利再次当选总统
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0352603.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/620513.shtml</code>
 
-### 孩子王IPO前夕卷入纸尿裤风波，被曝与Babycare共用代工厂
+### 美国宇航局任命UFO负责人调查神秘飞船目击事件
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7865.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/48152.shtml</code>
 
-### 视频|欧派创始人兼董事长姚良松自2017年以来累计分红近50亿元，占比超66%，比例上超越绝大多数A股上市公司
+### 荷兰光刻机巨头阿斯麦：中国订单已全数交付
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4263.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7232882.shtml</code>
 
-### 特朗普任命洛布出任UFO委员会“掌门”，此人因支持“外星人造访地球理论”引争议
+### 巴勒斯坦总统阿巴斯访问卡塔尔 重点讨论巴以停火谈判等议题
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/84317.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7113.shtml</code>
 
-### 德联集团：公司尚未减持回购股份
+### “动漫巡礼”阻碍交通，日政府反思过度旅游
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/894195.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/0510604.shtml</code>
 
-### 北京君正：AI MCU现在仍在样品阶段 目前计划7月进行量产版本的投片
+### 再创34年来新低 日元对美元汇率一度跌破160
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2862742.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5433072.shtml</code>
 
-### 陕电入皖 ！“十五五”首条特高压工程投运
+### 耶路撒冷一汽车撞人致2伤 以色列警方称是恐袭
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0485.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5120.shtml</code>
 
-### 龙源电力：向特定对象发行A股申请获深交所审核通过
+### 波音公司替换737 MAX项目负责人
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/260254.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7962969.shtml</code>
 
-### 2连板富春染织：股票交易异常波动 公司自查无应披露未披露事项
+### 变了！德国外长带头发声：希望以色列调整军事战略
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5576519.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5744553.shtml</code>
 
-### 晨光生物：实控人提议8000万元—1.6亿元回购公司股份
+### 缅甸发生5.0级地震，震源深度10千米
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7340.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/986856.shtml</code>
 
-### 权威报告：奇安信中国安全咨询服务市场份额连续六年领先
+### 苹果换充电接口了，但你的Type-C线还是用不上
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/889214.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/66937.shtml</code>
 
-### 安孚科技：适用于数据中心的高速高密度光电集成芯片和光学引擎
+### 印度内阁部长：将在印缅边境修建围栏，阻止缅甸人自由越境
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/902650.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/3591.shtml</code>
 
-### PriceSeek提醒：永和股份拟投建氟材料及中试基地项目
+### 日本为何公开将中国列为“假想敌”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/111999.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4675798.shtml</code>
 
-### 劈波斩浪，势如破竹！广汽国际上半年交出亮眼答卷
+### 金与正称朝方将拒绝与日本接触
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/81722.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5767382.shtml</code>
 
-### 洛阳钼业：公司巴西金矿生产运营正常
+### 基辛格：一个很懂中国的老人
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/740988.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/97286.shtml</code>
+
+### 日本车企集体造假为哪般？
+
+来源：<code>www.mobile.rczgi.cn/Article/6455.shtml</code>
+
+### 苏丹外交部：苏丹冲突双方领导人会晤推迟
+
+来源：<code>www.mobile.rczgi.cn/Article/4937.shtml</code>
+
+### 特朗普首战获胜意味着什么？
+
+来源：<code>www.mobile.rczgi.cn/Article/9116.shtml</code>
+
+### 马来西亚前总理马哈蒂尔接受反贪污委员会调查
+
+来源：<code>www.mobile.rczgi.cn/Article/8083481.shtml</code>
+
+### 美国《纽约时报》：芭比时代，女性更易焦虑
+
+来源：<code>www.mobile.rczgi.cn/Article/216296.shtml</code>
+
+### 红海现在有多乱，还会乱多久？
+
+来源：<code>www.mobile.rczgi.cn/Article/58818.shtml</code>
+
+### 韩国一举跃居全球第九大武器出口国 军售异军突起原因有四
+
+来源：<code>www.mobile.rczgi.cn/Article/42704.shtml</code>
+
+### 拜登访问之际，美媒曝光“越南秘密从俄罗斯买武器”
+
+来源：<code>www.mobile.rczgi.cn/Article/9661195.shtml</code>
+
+### 朔尔茨访华，随行“豪华企业团”都有哪些？激烈竞争下，“BBA”老板们都要随行
+
+来源：<code>www.mobile.rczgi.cn/Article/7999767.shtml</code>
+
+### 涉嫌贿选 日本前法务副大臣遭起诉
+
+来源：<code>www.mobile.rczgi.cn/Article/286600.shtml</code>
+
+### 日媒：线上聊天用句号，会让日本年轻人“倍感压力”
+
+来源：<code>www.mobile.rczgi.cn/Article/584658.shtml</code>
+
+### 美欧后继乏力之际，日本斥巨资援乌暗藏图谋
+
+来源：<code>www.mobile.rczgi.cn/Article/84192.shtml</code>
+
+### 以军要求世卫组织移走加沙南部一仓库中物资 谭德塞呼吁以军撤销命令
+
+来源：<code>www.mobile.rczgi.cn/Article/6158480.shtml</code>
 
 ## 三、科技产业
 
-### 兴源环境索赔时效仅剩两周，已有维权胜诉还可加入
+### 阿根廷要疯？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/41506.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/3169.shtml</code>
 
-### 超硬材料企业掀起散热潮，规模化量产尚需3至5年
+### 金灿荣：基辛格去世，美国政界或难再出“大智慧”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/686041.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/074714.shtml</code>
 
-### Meta“带崩”科技股？业内人士：算力过剩系误读！
+### 北马其顿新总统达夫科娃宣誓就职
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/54160.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4512264.shtml</code>
 
-### 忻州市政府召开第80次常务会议
+### 外媒：美开始从伊拉克撤离外交官
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1011284.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/176575.shtml</code>
 
-### 揭秘涨停丨21股封单资金超1亿元
+### 美媒曝特朗普竞选团队犹豫：要不加入TikTok？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/65063.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/457841.shtml</code>
 
-### 美元&美债极简投资框架
+### 美计划进一步收紧对华芯片出口措施，阿斯麦CEO：实际会削弱西方自己
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/526727.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/71600.shtml</code>
 
-### 【新闻】英特尔亮相第四届链博会，AI PC生态伙伴艾为电子以全链路芯片点亮 AI PC 新升级
+### 金正恩结束“最长出访”，妹妹金与正“全程低调”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/952439.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/22357.shtml</code>
 
-### 新开普（300248）：中标中国工商银行股份有限公司河南省分行采购项目，中标金额为2296.52万元
+### 美国芝加哥周末枪击案频发 已致18人中枪4人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/78726.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/426893.shtml</code>
 
-### Meta“小作文”有偏误！国内算力供不应求！
+### 美股三大指数集体收跌 英伟达再创新高
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0177010.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/3044895.shtml</code>
 
-### 独家 | 小象超市将升级包材并收费
+### 以军参谋长：随时准备在北部发动进攻
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/15121.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/549110.shtml</code>
 
-### 多地银行业利润承压，有区域亏损达23亿元
+### 以色列各地发生抗议活动 要求释放巴勒斯坦囚犯换取被扣押人员
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4193.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/108235.shtml</code>
 
-### 突变！002371、603986跌停
+### 美股三大股指集体收跌 大型科技股普跌
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/20249.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/17187.shtml</code>
 
-### 《美丽中国建设“十五五”规划》系统推进 严牌股份过滤材料迎需求扩容
+### 曾曝光波音质控问题的前员工，在提供证词前夕死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2069981.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/30653.shtml</code>
 
-### 公募基金经理上半年流动加速：224人离任创新高，易方达开启“扫货”模式新聘18位
+### Telegram创始人自曝被美特工骚扰：他们找上门来询问各种问题
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/4819.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/846913.shtml</code>
 
-### 沪锌失守2.45万！宏观与需求双压，TC低位支撑有限
+### 以军发言人：不会停止对哈马斯的军事行动
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/93725.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/545668.shtml</code>
 
-### 跌超8%转涨4%！主力资金再度加码，京东方A成交额超450亿元
+### 两座大坝垮塌、超万人遇难，飓风因何重创利比亚？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1452030.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6087.shtml</code>
 
-### 娱美德创始人清仓退场套现9200亿韩元 神秘中国资本拿下《传奇》IP控制权
+### 金正恩参观俄空天军及太平洋舰队装备
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/341424.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/886962.shtml</code>
 
-### 华民股份：主营业务为光伏硅棒、硅片相关业务，当前受行业周期性影响，盈利能力承压
+### 俄大军逼近，乌军突然撤换指挥官
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/56820.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/08601.shtml</code>
 
-### 斩获二连板！百亿A股公司提示风险
+### 外交部：俄罗斯恪守一个中国原则，坚定反对“台独”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/40813.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1006661.shtml</code>
 
-### 阿维塔官宣06T Elite双电机纯电版华为乾崑ADS 5“即将上线”
+### 全球黄金ETF继续净流出，释放了什么信号？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2180.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4540347.shtml</code>
 
-### 战投入局两年抽身离场，永贵电器兜底接盘亏损子公司，业绩承压再添资金压力
+### 拜登据悉将敲定电动汽车税收抵免新规
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/504674.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/12012.shtml</code>
 
-### 长缆科技：7月2日接受机构调研，华鑫证券参与
+### 以色列国防军发言人称以军正加强斋月前的安全准备
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8938685.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1601.shtml</code>
 
-### 云韬氢能携手一汽解放加速新能源重卡160万辆规模化进程
+### 地面进攻进一步深入，以军称已包围加沙城码头
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2710.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/20128.shtml</code>
 
-### 成都的“一环之王”
+### 乌方：俄首次对乌使用“锆石”高超音速导弹
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/99141.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/8814827.shtml</code>
 
-### 新亚制程财报虚增利润引发索赔，受损投资者维权机会不容错过
+### 亚历山大·斯图布当选芬兰新一任总统
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/135502.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5937.shtml</code>
 
-### 港股收评：恒指涨0.76% 科指跌0.4% 黄金股、汽车股普涨 光通信、半导体板块下挫 长飞光纤光缆跌超22%
+### 韩联参：朝鲜再向韩空投330多只垃圾气球
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8770.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/985380.shtml</code>
+
+### 巴以冲突的走向，有三种可能
+
+来源：<code>www.mobile.rczgi.cn/Article/8913.shtml</code>
+
+### 越南政坛“地震”、富商被判重刑，发生了什么
+
+来源：<code>www.mobile.rczgi.cn/Article/4039699.shtml</code>
+
+### 以总理再发声明：不摧毁哈马斯就不会永久停火
+
+来源：<code>www.mobile.rczgi.cn/Article/709931.shtml</code>
+
+### 俄对外情报局局长：法国准备向乌派首批2千人
+
+来源：<code>www.mobile.rczgi.cn/Article/385293.shtml</code>
+
+### 美国频频拉拢  沙特和以色列为何都不肯给面子？
+
+来源：<code>www.mobile.rczgi.cn/Article/9765.shtml</code>
+
+### 普京签署决定 派遣俄副总理率团参加亚太经合组织领导人非正式会议
+
+来源：<code>www.mobile.rczgi.cn/Article/137727.shtml</code>
+
+### 日本气象厅调高爱媛县近海地震震级至6.6级
+
+来源：<code>www.mobile.rczgi.cn/Article/6978.shtml</code>
+
+### 美国驻黎巴嫩大使馆附近发生枪击 枪手受伤
+
+来源：<code>www.mobile.rczgi.cn/Article/5902677.shtml</code>
+
+### 移民大增，澳大利亚陷入“租房危机”
+
+来源：<code>www.mobile.rczgi.cn/Article/7560061.shtml</code>
+
+### 俄罗斯官员：日本若修改和平宪法俄方将反制
+
+来源：<code>www.mobile.rczgi.cn/Article/658678.shtml</code>
+
+### 美方：若哈马斯接受停火提案，以色列也会接受
+
+来源：<code>www.mobile.rczgi.cn/Article/09606.shtml</code>
+
+### 美国国务卿布林肯所乘飞机遭遇“严重故障”
+
+来源：<code>www.mobile.rczgi.cn/Article/3505.shtml</code>
+
+### 普京：俄罗斯无意与北约国家开战
+
+来源：<code>www.mobile.rczgi.cn/Article/875835.shtml</code>
+
+### 消息人士称美军袭击地区无伊朗伊斯兰革命卫队基地
+
+来源：<code>www.mobile.rczgi.cn/Article/244342.shtml</code>
 
 ## 四、国际热点
 
-### Meta出租算力，吓倒AI硬件 | 巴伦投资
+### 俄反对派领导人纳瓦尔尼在狱中死亡，克宫回应
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7223.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/7012672.shtml</code>
 
-### 比特币价格反弹至6.1万美元
+### 乌克兰全境电力设施遭“大规模”破坏
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6066104.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6797027.shtml</code>
 
-### 年内超八成股价下跌，银行股还能否“避险”？
+### 美国首都华盛顿发生枪击 6人中弹包括2名儿童
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/42328.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/04890.shtml</code>
 
-### *ST英飞索赔时效剩十个月 部分股民二审胜诉
+### 黎巴嫩南部遭以军空袭 致4死1伤
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1596878.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4011.shtml</code>
 
-### 07月02日液化天然气5452.00元/吨 90天上涨15.07%
+### 北约敏感时刻举行核威慑演习，俄副外长：俄罗斯在压力下不会退缩
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/872026.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5591635.shtml</code>
 
-### 距正式登陆A股仅一步之遥，宇树科技IPO注册获批
+### 消息人士：土耳其将提议重启俄乌在伊斯坦布尔的谈判
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/010752.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/86342.shtml</code>
 
-### 博力威：2025年度向特定对象发行股票申请获证监会同意注册批复
+### 美军基地发生枪击事件：2名士兵持枪打斗 造成1人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/600130.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/361104.shtml</code>
 
-### 为什么恒大事件中，我最不能原谅的是普华永道
+### 以色列媒体称一架从叙利亚发射的无人机袭击戈兰高地
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0148675.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/2394.shtml</code>
 
-### 加仓！超230亿资金，涌入这一主题
+### 关键矿产获取，美拉13国加紧布局！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8128.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/158161.shtml</code>
 
-### 碳化硅龙头登陆港股！蓝海华腾等参股股东迎来收获
+### “以色列用AI猎杀哈马斯”背后几大疑团，美媒：引发“虚假信息浪潮”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/913363.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/09619.shtml</code>
 
-### 武汉大学艾新平教授：看见电化学规律，锂电才能持续领先
+### 一图读懂｜起底美国“长臂管辖”本质！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/045193.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/3871818.shtml</code>
 
-### 乖宝宠物市值较高点蒸发超300亿 一季度利润下跌近4成、2.25亿溢价收购关联资产从代理商到买家
+### 加沙地带卫生部门：过去24小时内有122名巴勒斯坦人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6654749.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/0763.shtml</code>
 
-### 王府井：拟以5000万元至1亿元回购股份用于减少注册资本
+### 中毒者增至约300人！波及半个日本
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/80981.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/66895.shtml</code>
 
-### 德福科技今日大宗交易折价成交50万股 成交额7171.5万元
+### 俄罗斯解除汽油出口临时禁令
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3928197.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/454275.shtml</code>
 
-### 连亏两年，安诺其计划跨界AI算力
+### 法国首射新型潜射洲际导弹，为何全球高度关注
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/978887.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/816780.shtml</code>
 
-### 雷曼光电与南方科技大学纳米科学与应用研究院签署产学研战略合作协议
+### 冷落265天后，拜登抽空会见了他的以色列“老朋友”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/96609.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/06758.shtml</code>
 
-### 茉莉奶白与LV商标侵权案一审败诉，被判赔1030万元
+### 土耳其外长证实：普京即将访土 讨论乌克兰粮食等问题
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/60627.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/2302.shtml</code>
 
-### 因存在多项违规行为 中信证券一营业部被责令改正
+### 第二个冬天来了，这成了一场被遗忘的战争
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/47269.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/792175.shtml</code>
 
-### 黄金价格创13年来最大季度跌幅
+### 不得不说，缅北这一招，中国干得漂亮
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2809.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/13862.shtml</code>
 
-### 半导体行业火爆，公司是否考虑切入该赛道？元利科技回应
+### 世界冠军疑撞死世界冠军！他被控多项罪名
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/22601.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5596.shtml</code>
 
-### 好利科技卖壳进行时，背后“私募大佬”隐名收购挨罚！
+### 3000万美元离奇消失 洛杉矶爆发史上“最大现金劫案”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9427.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/6146.shtml</code>
 
-### 今天，央企新能源巨头上市，首日暴涨177.74%触发临停，刷新多项纪录！
+### 卡塔尔：加沙停火谈判尚未接近达成协议
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/05634.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/316508.shtml</code>
 
-### 零售拓客寻找新锚点 银行卡争相引入Token权益
+### “跪杀”非裔男子弗洛伊德的美国前警察，在狱中被人刺了22刀
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/88886.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/58722.shtml</code>
 
-### 再添“智”造标杆！龙净电池获评2026省级“先进级智能工厂”
+### 胡塞武装继续发动海上攻击，反舰能力如何？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/2557.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5234735.shtml</code>
 
-### 黄力晨:通胀风险下降 美元回落支撑金价反弹
+### 美情报机构承认：纳瓦利内之死“或与普京无关”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/143550.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/941893.shtml</code>
 
-### 9287万！保利物业7月首标，三度拿下广州城区保洁项目
+### 澳大利亚悉尼教堂发生的袭击事件被视为恐怖袭击
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0277524.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4073.shtml</code>
+
+### 美媒：拜登称他看到了哈马斯“斩首婴儿”的照片
+
+来源：<code>www.mobile.rczgi.cn/Article/43029.shtml</code>
+
+### 以军袭击加沙地带南部城市汗尤尼斯 已致数十人伤亡
+
+来源：<code>www.mobile.rczgi.cn/Article/0876.shtml</code>
+
+### 凯特王妃告诉郎朗：8岁的夏洛特公主开始学习弹钢琴
+
+来源：<code>www.mobile.rczgi.cn/Article/847899.shtml</code>
+
+### 马斯克宣布将注销电话号码，只使用“X”收发信息！
+
+来源：<code>www.mobile.rczgi.cn/Article/0766188.shtml</code>
+
+### 美媒：SpaceX证实与“星舰”失联，被迫触发其自毁系统
+
+来源：<code>www.mobile.rczgi.cn/Article/0392.shtml</code>
+
+### 60名女性官员联名控诉！震动英国国防部
+
+来源：<code>www.mobile.rczgi.cn/Article/73852.shtml</code>
+
+### 巴西总统称以色列实施种族灭绝 以方抗议
+
+来源：<code>www.mobile.rczgi.cn/Article/51689.shtml</code>
+
+### 日航两架客机发生机翼碰撞事故
+
+来源：<code>www.mobile.rczgi.cn/Article/4478.shtml</code>
+
+### 苏丹霍乱疫情继续扩散 已致200人死亡
+
+来源：<code>www.mobile.rczgi.cn/Article/3849901.shtml</code>
+
+### 英伟达能否继续“狂飙”？
+
+来源：<code>www.mobile.rczgi.cn/Article/4866.shtml</code>
+
+### 乌克兰国家保卫局局长被解职
+
+来源：<code>www.mobile.rczgi.cn/Article/8374.shtml</code>
+
+### 澳大利亚加入美日联合军演意欲何为 将恶化全亚太地区安全环境
+
+来源：<code>www.mobile.rczgi.cn/Article/710265.shtml</code>
+
+### “伊斯兰国”认领布鲁塞尔枪击案
+
+来源：<code>www.mobile.rczgi.cn/Article/234649.shtml</code>
+
+### 以色列拟认定联合国机构为恐怖组织
+
+来源：<code>www.mobile.rczgi.cn/Article/10798.shtml</code>
 
 ## 五、文体娱乐
 
-### 沈鼓集团漂亮业绩之下“迷雾重重”！
+### 世界气象组织：今年是有记录以来人类历史上最热一年
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6577455.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5140887.shtml</code>
 
-### 创业板港口无人驾驶第一股要来了！拟募资37亿，赛力斯是最大客户
+### 乌克兰称击毁俄军一艘巡逻舰，俄方暂无回应
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/320413.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/175547.shtml</code>
 
-### “奈雪股东大会”管理层被尖锐“提问”，管理层：无市值管理计划、用户不会因欧包预制而不买
+### 莫迪为罗摩神庙揭幕几天后，印度官员试图“改造”更多清真寺引争论
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/388314.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/2989.shtml</code>
 
-### 2026年银行板块中期投资策略：稳健持续，关注分红与估值切换行情【中泰银行·戴志锋/邓美君/杨超伦/马志豪/陈程】
+### 开完坦克，金正恩又来到了空降兵部队
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/0857.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/52555.shtml</code>
 
-### 确认了！国内航线燃油附加费7月5日起大幅下调
+### 乌克兰近日使用美援武器打击俄罗斯境内目标
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/23196.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/13205.shtml</code>
 
-### 楚天科技：7月2日接受机构调研，开源证券、天弘基金等多家机构参与
+### 警惕！事关中国，英国执政党立了个“承诺”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9329348.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/8283.shtml</code>
 
-### 阿维塔更新招股书解读：三条曲线同时向上，五年完成从亏损到造血
+### 韩国医协今将宣布集体停诊计划
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/3883452.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/0199257.shtml</code>
 
-### 拉美最大斜拉跨海桥开工见证中巴合作新高度
+### 美媒：杨紫琼被提名为国际奥林匹克委员会委员
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/01232.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/43427.shtml</code>
 
-### 同程掏14亿港元坐嘀嗒，图啥？
+### 胡塞武装称袭击以色列埃拉特
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/15480.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/375862.shtml</code>
 
-### 罕见，暴跌超30%！热门大牛股，集体跌停！存储“一哥”，成交额超320亿
+### 哈马斯下属武装派别卡桑旅称向耶路撒冷发射多枚火箭弹
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1870.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/529672.shtml</code>
 
-### 泸州老窖：6月30日接受机构调研，中金公司、华福证券等多家机构参与
+### 苹果确认计划“在未来”集成谷歌Gemini模型
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/16151.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/417990.shtml</code>
 
-### 【新能源】2026年6月新能源乘用车厂商批发销量快讯
+### 海地过渡总统委员会正式接管政府职责
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/6192.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/8193.shtml</code>
 
-### 千里科技：6月汽车整车销量8311辆，同比下降17.73%
+### 美防长承认超2.5万加沙妇孺被以军杀害
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7477.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/054972.shtml</code>
 
-### 特朗普去年海外地产收入数千万美元
+### 以色列国防部长称以军地面行动进入“下一阶段”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/665413.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/85393.shtml</code>
 
-### 超720家机构，“盯上”1家公司
+### 美媒：为对以色列进行打击，伊朗准备了100多枚巡航导弹
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1779091.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4784.shtml</code>
 
-### 中伦助力乐舱物流完成配售新股
+### 官宣！泽连斯基正式解除扎卢日内总司令一职
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/014168.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/3587682.shtml</code>
 
-### 1家过会，1家取消！年内首单IPO取消审议
+### 欧洲足坛悄然刮起名帅“下课风”
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5874499.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/5368.shtml</code>
 
-### 正式揭牌！德明利成立实验室
+### 加沙城一救援物资领取地点人群遭以军袭击，至少20人死亡
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7918.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/774637.shtml</code>
 
-### 特朗普过去24小时都忙了什么？（2026-07-02）
+### 美援导弹是96年产？乌外长：……
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/7661485.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1533.shtml</code>
 
-### 宇通客车（600066）：中标阳泉市智达旅游客运有限公司采购项目，中标金额为539.70万元
+### 因与俄前副防长伊万诺夫存在“信任关系”一人被羁押候审
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/9312.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/4950529.shtml</code>
 
-### AI 赋能提质增效，步步高携手企业微信开启数字化新征程
+### 扎卢日内走人，泽连斯基支持率大跌
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/20180.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/9646182.shtml</code>
 
-### 云迹科技联合奇安信发布“高安全机器人”切入政务、金融等关键场景
+### 韩国计划今年“抢”200万中国游客
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/76415.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/937772.shtml</code>
 
-### 坐拥大唐不夜城却连亏7.7亿，曲江文旅顶流IP为何难盈利？
+### 坎贝尔出任美副国务卿，美媒：主张与华竞争而非对抗
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/71219.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/48127.shtml</code>
 
-### 宇树科技通过证监会注册关，发行在即！王兴兴合计控制 68.78% 表决权！
+### 卡塔尔为什么能帮各方推动“敏感谈判”？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/1976.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/1352.shtml</code>
 
-### 福石控股20%涨停 国泰海通证券南京太平南路证券营业部买入4313万元
+### 拜登发言，台下听众们表情亮了！
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/8464.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/08941.shtml</code>
 
-### 天权AI智能风控系统构筑合规竞争优势，微盟营销差异化壁垒驱动长期价值
+### 三架直升机，为何只有总统及外长乘坐的那架失事？
 
-来源：<code>www.mobile.tpdvm.cn/Article/details/5714.sHtML</code>
+来源：<code>www.mobile.rczgi.cn/Article/07474.shtml</code>
+
+### 苏丹中部村庄遭遇袭击 造成21人死伤
+
+来源：<code>www.mobile.rczgi.cn/Article/6394.shtml</code>
+
+### 芬兰继续关闭与俄罗斯之间陆路边境口岸
+
+来源：<code>www.mobile.rczgi.cn/Article/137356.shtml</code>
+
+### 伊拉克民兵武装称对阿萨德空军基地发动无人机袭击
+
+来源：<code>www.mobile.rczgi.cn/Article/38765.shtml</code>
+
+### 涉嫌房产诈骗？韩国天王级艺人被起诉
+
+来源：<code>www.mobile.rczgi.cn/Article/752111.shtml</code>
+
+### 印度未能与月球探测器重新建立联系，“中国成功过”
+
+来源：<code>www.mobile.rczgi.cn/Article/84230.shtml</code>
+
+### 美缅因州暂缓裁定特朗普选举资格争议 等待联邦最高法院裁定
+
+来源：<code>www.mobile.rczgi.cn/Article/6208163.shtml</code>
+
+### 以色列拟对极端正统派征兵，引发强烈反对
+
+来源：<code>www.mobile.rczgi.cn/Article/431898.shtml</code>
+
+### 以媒称以军在加沙地区军事行动将持续一年
+
+来源：<code>www.mobile.rczgi.cn/Article/4441.shtml</code>
+
+### 敦促韩方：谨言慎行
+
+来源：<code>www.mobile.rczgi.cn/Article/4471.shtml</code>
+
+### 美国中情局“史上最大数据泄密案”内情曝光
+
+来源：<code>www.mobile.rczgi.cn/Article/38812.shtml</code>
+
+### 日本福岛县附近海域发生4.1级地震
+
+来源：<code>www.mobile.rczgi.cn/Article/4496347.shtml</code>
+
+### 新加坡防长透露：美F-35战机已在乌参战
+
+来源：<code>www.mobile.rczgi.cn/Article/3870.shtml</code>
+
+### 苏丹主权委员会主席会见伊加特执行秘书 双方同意召开苏丹问题特别峰会
+
+来源：<code>www.mobile.rczgi.cn/Article/38278.shtml</code>
+
+### 花2亿欧元建法语国际城，马克龙雄心受到质疑
+
+来源：<code>www.mobile.rczgi.cn/Article/44342.shtml</code>
 
 ## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
 
-*报告生成时间：2026年07月06日00时25分00秒*
+*报告生成时间：2026年07月13日00时50分27秒*
 
 *数据来源：新浪财经、公开媒体报道*
